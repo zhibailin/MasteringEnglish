@@ -13,3 +13,6 @@ Wealth __is__ assets that earn while you sleep.
 I want the assets that earn while I sleep.
 
 My definition of wealth is __oriented toward__ businesses and assets that can earn while you sleep.
+
+### Wealth buys your freedom
+I want wealth because its buys me freedom--
