@@ -15,4 +15,7 @@ I want the assets that earn while I sleep.
 My definition of wealth is __oriented toward__ businesses and assets that can earn while you sleep.
 
 ### Wealth buys your freedom
-I want wealth because it buys me freedom--
+You want wealth because it buys you freedom--  
+So you don't have to wear a tie like a collar around your neck;  
+so you don't have to wake up at 7:00 a.m. to rush to work and __sit in commute traffic__;  
+so you don't have to waste your life grinding productive hours away into a soulless job that doesn't fulfill you.
