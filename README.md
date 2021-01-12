@@ -21,3 +21,4 @@ so you don't have to wake up at 7:00 a.m. to rush to work and __sit in commute t
 so you don't have to waste your life grinding productive hours away into a soulless job that doesn't fulfill you.
 
 The purpose of wealth is freedom; It's nothing more than that. It's not to buy fur coats, or to __drive Ferraris__, or to sail yachts, or to __jet around the world__ in a Gulf Stream.
+__That stuff__ gets really boring and stupid, really __fast__.
