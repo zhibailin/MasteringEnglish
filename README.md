@@ -22,3 +22,4 @@ so you don't have to waste your life grinding productive hours away into a soull
 
 The purpose of wealth is freedom; It's nothing more than that. It's not to buy fur coats, or to __drive Ferraris__, or to sail yachts, or to __jet around the world__ in a Gulf Stream.
 __That stuff__ gets really boring and stupid, really __fast__.
+It's about being your own sovereign individual.
