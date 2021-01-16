@@ -26,3 +26,4 @@ It's about being your own sovereign individual.
 
 It is competitive __to some extent__.
 It's __a positive sum game__
+--but there are competitive __elements to it__,
