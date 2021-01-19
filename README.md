@@ -28,3 +28,5 @@ It is competitive __to some extent__.
 It's __a positive sum game__
 --but there are competitive elements to it, because there's __a finite amount of resources__ right now in society.
 To get the resources to do what you want, you have to __stand out__.
+### Money is how we transfer wealth
+Money is how we transfer wealth. Money __is__ social credits.
