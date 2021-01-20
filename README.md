@@ -30,3 +30,4 @@ It's __a positive sum game__
 To get the resources to do what you want, you have to __stand out__.
 ### Money is how we transfer wealth
 Money is how we transfer wealth. Money __is__ social credits.
+it's the ability to have credits and __debits__ of other people's time.
