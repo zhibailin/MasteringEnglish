@@ -33,3 +33,4 @@ Money is how we transfer wealth. Money __is__ social credits.
 it's the ability to have credits and __debits__ of other people's time.
 
 If I do my job right and create value for society, society says,"Oh, thank you. We __own you something__ in the future for the work that you did.
+Here's a little IOU. Let's call it money.
