@@ -34,3 +34,6 @@ it's the ability to have credits and __debits__ of other people's time.
 
 If I do my job right and create value for society, society says,"Oh, thank you. We __own you something__ in the future for the work that you did.
 Here's a little IOU. Let's call it money.
+
+That money gets __debased__ because people steal the IOUs; the government __prints extra IOUs__;
+and people renege on their IOUs;
