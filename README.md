@@ -36,4 +36,5 @@ If I do my job right and create value for society, society says,"Oh, thank you. 
 Here's a little IOU. Let's call it money.
 
 That money gets __debased__ because people steal the IOUs; the government __prints extra IOUs__;
-and people renege on their IOUs;
+and people __renege on__ their IOUs;
+But money tries to be a reliable IOU from society that you __are owned something for something__ you did in the past.
