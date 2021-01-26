@@ -40,3 +40,5 @@ and people __renege on__ their IOUs;
 But money tries to be a reliable IOU from society that you __are owned something for something__ you did in the past.
 
 We transfer these IOUs __around__; money is how we transfer wealth.
+
+### Status is your rank in the social hierarchy.
