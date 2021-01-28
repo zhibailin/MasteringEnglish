@@ -42,3 +42,6 @@ But money tries to be a reliable IOU from society that you __are owned something
 We transfer these IOUs __around__; money is how we transfer wealth.
 
 ### Status is your rank in the social hierarchy.
+There are fundamentally two huge games in life that people play. One is the money game.  
+Money is not __going to__ solve __all of__ your problems;  
+but it's __going to__ solve __all of__ your money problems.
