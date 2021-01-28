@@ -45,3 +45,4 @@ We transfer these IOUs __around__; money is how we transfer wealth.
 There are fundamentally two huge games in life that people play. One is the money game.  
 Money is not __going to__ solve __all of__ your problems;  
 but it's __going to__ solve __all of__ your money problems.
+I __think__ people know that. They __realize__ that, __so__ they want to make money.
