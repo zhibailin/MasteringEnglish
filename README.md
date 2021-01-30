@@ -48,3 +48,4 @@ but it's __going to__ solve __all of__ your money problems.
 I __think__ people know that. They __realize__ that, __so__ they want to make money.
 
 At the same time, __deep down__ many people believe they can't make it;
+so they __don't want__ any wealth creation __to happen__.
