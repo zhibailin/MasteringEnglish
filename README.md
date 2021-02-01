@@ -50,3 +50,5 @@ I __think__ people know that. They __realize__ that, __so__ they want to make mo
 At the same time, __deep down__ many people believe they can't make it;
 so they __don't want__ any wealth creation __to happen__.
 The __virtue__ signal by attackting the whole enterprise, saying,"Well, making money is evil. You shouldn't do it."
+
+But they'__re actually__ playing the other game, __which__ is the status game.
