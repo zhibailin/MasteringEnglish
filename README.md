@@ -52,3 +52,4 @@ so they __don't want__ any wealth creation __to happen__.
 The __virtue__ signal by attackting the whole enterprise, saying,"Well, making money is evil. You shouldn't do it."
 
 But they'__re actually__ playing the other game, __which__ is the status game.
+They're __trying to be__ high status in the eyes of others by saying,"Well, I don't __need__ money. We don't __want__ money".
