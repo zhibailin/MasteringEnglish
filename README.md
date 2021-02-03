@@ -53,3 +53,7 @@ The __virtue__ signal by attackting the whole enterprise, saying,"Well, making m
 
 But they'__re actually__ playing the other game, __which__ is the status game.
 They're __trying to be__ high status in the eyes of others by saying,"Well, I don't __need__ money. We don't __want__ money".
+
+Status is your __ranking__ in the social hierarchy.
+
+Wealth is not __a zero-sum game__.
