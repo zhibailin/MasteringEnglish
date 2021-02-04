@@ -57,3 +57,5 @@ They're __trying to be__ high status in the eyes of others by saying,"Well, I do
 Status is your __ranking__ in the social hierarchy.
 
 Wealth is not __a zero-sum game__.
+
+Wealth is a very __positive-sum game__.
