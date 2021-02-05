@@ -59,3 +59,5 @@ Status is your __ranking__ in the social hierarchy.
 Wealth is not __a zero-sum game__.
 
 Wealth is a very __positive-sum game__.
+
+Status, __on the other hand__, is a zero-sum game.
