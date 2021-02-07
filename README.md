@@ -62,3 +62,4 @@ Wealth is a very __positive-sum game__.
 
 Status, __on the other hand__, is a zero-sum game.
 It's a very old game. We've been playing it since __monkey tribes__. It's hierarchical.
+Who's number one? Who's number two? Who's number three? And __for__ number three __to__ move to number two, number two has to move out of that __slot__. So, status is a zero-sum game.
