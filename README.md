@@ -65,3 +65,4 @@ It's a very old game. We've been playing it since __monkey tribes__. It's hierar
 Who's number one? Who's number two? Who's number three? And __for__ number three __to__ move to number two, number two has to move out of that __slot__. So, status is a zero-sum game.
 
 Politics is __an example of__ **a** status game.
+Even sports is __an example of__ a status game. To be the winner, __there must be__ a loser.
