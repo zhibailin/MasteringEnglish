@@ -67,3 +67,4 @@ Who's number one? Who's number two? Who's number three? And __for__ number three
 Politics is __an example of__ **a** status game.
 Even sports is __an example of__ a status game. To be the winner, __there must be__ a loser.
 Fundamentally, __I don't like__ status games.
+__They (status games)__ play __an__ important role in our society, so we can __figure out__ who's in charge.
