@@ -69,3 +69,5 @@ Even sports is __an example of__ a status game. To be the winner, __there must b
 Fundamentally, __I don't like__ status games.
 __They (status games)__ play __an__ important role in our society, so we can __figure out__ who's in charge.
 But you play them(status games) because they're __a__ necessary evil.
+
+__On__ an evolutionary __basis__, if you go back thousands of years -- status is a much better predictor of survival than wealth.
