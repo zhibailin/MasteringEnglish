@@ -72,3 +72,5 @@ But you play them(status games) because they're __a__ necessary evil.
 
 __On__ an evolutionary __basis__, if you go back thousands of years -- status is a much better predictor of survival than wealth.
 You __couldn't__ have wealth before __the farming age__ because you __couldn't__ store things. Hunter-gatherers carried everything on their back.
+
+### People creating wealth will always be attacked by people playing status games.
