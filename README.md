@@ -76,3 +76,5 @@ You __couldn't__ have wealth before __the farming age__ because you __couldn't__
 ### People creating wealth will always be attacked by people playing status games.
 There's always a subtle competition __going on__ between status and wealth.
 For example, when journalists attack __rich people__ or __the tech industry__, they're really __bidding for__ status.
+
+__The problem is__, __to__ win at a status game, you __have to__ put somebody else down.
