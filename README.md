@@ -78,3 +78,4 @@ There's always a subtle competition __going on__ between status and wealth.
 For example, when journalists attack __rich people__ or __the tech industry__, they're really __bidding for__ status.
 
 __The problem is__, __to__ win at a status game, you __have to__ put somebody else down.
+__That's why you should__ avoid status games in your life - because they __make__ you __into__ an angry combative person.
