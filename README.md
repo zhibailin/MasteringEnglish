@@ -80,3 +80,5 @@ For example, when journalists attack __rich people__ or __the tech industry__, t
 __The problem is__, __to__ win at a status game, you __have to__ put somebody else down.
 __That's why you should__ avoid status games in your life - because they __make__ you __into__ an angry combative person.
 You're always __fighting to__ put others down and __elevate__ yourself and the people you like.
+
+Status games are always going to exist; __there's no way around it__.
