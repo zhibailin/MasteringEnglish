@@ -82,3 +82,4 @@ __That's why you should__ avoid status games in your life - because they __make_
 You're always __fighting to__ put others down and __elevate__ yourself and the people you like.
 
 Status games are always going to exist; __there's no way around it__.
+Realize that __most of the time when__ you're trying to create wealth, you're getting attacked by someone else
