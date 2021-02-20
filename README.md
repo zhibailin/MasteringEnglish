@@ -84,3 +84,4 @@ You're always __fighting to__ put others down and __elevate__ yourself and the p
 Status games are always going to exist; __there's no way around it__.
 Realize that __most of the time when__ you're trying to create wealth, you're getting attacked by someone else
 and they'__re trying to__ look like __a goody-two shoes__.
+They'__re trying to__ up their own status __at your expense__.
