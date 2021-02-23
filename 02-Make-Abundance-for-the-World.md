@@ -2,3 +2,5 @@
 > Wealth isn't about taking something from somebody else
 
 __Ethical wealth creation__ makes abundance for the world.
+
+I think there is this __notion__ that making money is evil, right?
