@@ -5,3 +5,4 @@ __Ethical wealth creation__ makes abundance for the world.
 
 I think there is this __notion__ that making money is evil, right?
 It'__s rooted__ all the way back down to "money is the root of all evil."
+__People think that__ the bankers steal our money.
