@@ -9,3 +9,5 @@ __People think that__ the bankers steal our money.
 It's __somewhat__ true in that,
 __in a lot of the world__, 
 there's a lot of **theft** __going on__ **all the time**.
+
+The history of the world, __in some sense__, is **this** predator/prey relationship between makers and takers.
