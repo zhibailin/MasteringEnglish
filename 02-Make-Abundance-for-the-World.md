@@ -11,3 +11,4 @@ __in a lot of the world__,
 there's a lot of **theft** __going on__ **all the time**.
 
 The history of the world, __in some sense__, is **this** predator/prey relationship between makers and takers.
+There are people who go out and create things, and build things, and __work__ hard __on__ things.
