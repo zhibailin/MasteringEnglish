@@ -12,3 +12,4 @@ there's a lot of **theft** __going on__ **all the time**.
 
 The history of the world, __in some sense__, is **this** predator/prey relationship between makers and takers.
 There are people who go out and create things, and build things, and __work__ hard __on__ things.
+Then there are people who come along with a sword, or a gun, or taxes, or __crony capitalism__, or Communism, or what have you. There's all these different methods to steal.
