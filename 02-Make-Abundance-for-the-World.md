@@ -15,3 +15,4 @@ There are people who go out and create things, and build things, and __work__ ha
 Then there are people who come along with a sword, or a gun, or taxes, or __crony capitalism__, or Communism, or what have you. There's all these different methods to steal.
 
 Even in nature, there are more __parasites__ than there are __non-parasitical organisms__.
+You have a ton of parasites in you, who are __living off__ of you.
