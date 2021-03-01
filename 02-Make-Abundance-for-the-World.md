@@ -16,3 +16,4 @@ Then there are people who come along with a sword, or a gun, or taxes, or __cron
 
 Even in nature, there are more __parasites__ than there are __non-parasitical organisms__.
 You have a ton of parasites in you, who are __living off__ of you.
+__The better ones are__ symbiotic, they're giving something back.
