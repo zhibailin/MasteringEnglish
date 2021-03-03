@@ -18,3 +18,5 @@ Even in nature, there are more __parasites__ than there are __non-parasitical or
 You have a ton of parasites in you, who are __living off__ of you.
 __The better ones are__ symbiotic, they're giving something back.
 But there are a lot (parasites) that are just taking. __That's the nature of__ how any complex system is built.
+
+__[[What I am focused on]]__ is true wealth creation.
