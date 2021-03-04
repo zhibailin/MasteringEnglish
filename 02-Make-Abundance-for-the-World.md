@@ -20,3 +20,5 @@ __The better ones are__ symbiotic, they're giving something back.
 But there are a lot (parasites) that are just taking. __That's the nature of__ how any complex system is built.
 
 __[[What I am focused on]]__ is true wealth creation.
+__It's not about__ taking money. 
+__It's not about__ taking something from somebody else. 
