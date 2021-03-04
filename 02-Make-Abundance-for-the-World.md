@@ -22,3 +22,4 @@ But there are a lot (parasites) that are just taking. __That's the nature of__ h
 __[[What I am focused on]]__ is true wealth creation.
 __It's not about__ taking money. 
 __It's not about__ taking something from somebody else. 
+__It's from__ creating abundance.
