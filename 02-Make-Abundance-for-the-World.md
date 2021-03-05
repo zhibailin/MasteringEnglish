@@ -25,3 +25,4 @@ __It's not about__ taking something from somebody else.
 __It's from__ creating abundance.
 
 Obviously, __there isn't a finite__ jobs, or finite amount of wealth. 
+__Otherwise__ we __would__ still be sitting around in caves, figureing out how to divide up pieces of fire wood, and the oocasional dead deel.
