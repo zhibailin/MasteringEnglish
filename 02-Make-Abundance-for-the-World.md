@@ -23,3 +23,5 @@ __[[What I am focused on]]__ is true wealth creation.
 __It's not about__ taking money. 
 __It's not about__ taking something from somebody else. 
 __It's from__ creating abundance.
+
+Obviously, __there isn't a finite__ jobs, or finite amount of wealth. 
