@@ -26,3 +26,11 @@ __It's from__ creating abundance.
 
 Obviously, __there isn't a finite__ jobs, or finite amount of wealth. 
 __Otherwise__ we __would__ still be sitting around in caves, figureing out how to divide up pieces of fire wood, and the oocasional dead deel.
+
+Most of the wealth in civilization, in fact all of it, has been created. 
+__It got created from__ somewhere. 
+__It got created from__ people. 
+__It got created from__ technology. 
+__It got created from__ productivity. 
+__It got created from__ hard work.
+This idea that it's stolen is this horrible zero-sum game that people who are trying to gain status play.
