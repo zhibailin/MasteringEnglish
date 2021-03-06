@@ -34,3 +34,5 @@ __It got created from__ technology.
 __It got created from__ productivity. 
 __It got created from__ hard work.
 This idea that it's stolen is this horrible zero-sum game that people who are trying to gain status play.
+
+But __the reality is__ everyone can be rich.
