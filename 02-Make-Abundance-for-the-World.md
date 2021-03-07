@@ -36,3 +36,4 @@ __It got created from__ hard work.
 This idea that it's stolen is this horrible zero-sum game that people who are trying to gain status play.
 
 But __the reality is__ everyone can be rich.
+We __can see that__ by seeing, that in __the First World__, everyone is basically richer than almost anyone who was alive 200 years ago.
