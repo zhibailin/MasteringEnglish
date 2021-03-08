@@ -37,3 +37,9 @@ This idea that it's stolen is this horrible zero-sum game that people who are tr
 
 But __the reality is__ everyone can be rich.
 We __can see that__ by seeing, that in __the First World__, everyone is basically richer than almost anyone who was alive 200 years ago.
+
+200 years ago nobody had __antibiotics__.
+Nobody had cars.
+Nobody had electricity.
+Nobody had the iPhone.
+__All of these things__ are inventions that have made us wealthier as a species.
