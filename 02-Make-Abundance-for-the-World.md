@@ -43,3 +43,5 @@ Nobody had cars.
 Nobody had electricity.
 Nobody had the iPhone.
 __All of these things__ are inventions that have made us wealthier as a species.
+
+Today, I would rather be a poor persion in __a First World country__, than be a rich person in __Louis the XIV's France__.
