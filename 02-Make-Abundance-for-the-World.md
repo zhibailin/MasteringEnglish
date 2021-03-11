@@ -47,3 +47,5 @@ __All of these things__ are inventions that have made us wealthier as a species.
 Today, I would rather be a poor persion in __a First World country__, than be a rich person in __Louis the XIV's France__.
 I'__d rather__ be a poor person today __than__ aristocrat __back then__.
 __That's because of__ wealth creation.
+
+__The engine of__ technology __is__ science
