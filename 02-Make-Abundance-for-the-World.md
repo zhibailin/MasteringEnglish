@@ -49,3 +49,4 @@ I'__d rather__ be a poor person today __than__ aristocrat __back then__.
 __That's because of__ wealth creation.
 
 __The engine of__ technology __is__ science
+that __is applied for the purpose of__ creating abundance.
