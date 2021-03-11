@@ -50,3 +50,4 @@ __That's because of__ wealth creation.
 
 __The engine of__ technology __is__ science
 that __is applied for the purpose of__ creating abundance.
+So, I think [[fundamentally]] everybody can be wealthy.

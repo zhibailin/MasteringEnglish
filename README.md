@@ -43,7 +43,7 @@ But money tries to be a reliable IOU from society that you __are owned something
 We transfer these IOUs __around__; money is how we transfer wealth.
 
 ### Status is your rank in the social hierarchy.
-There are fundamentally two huge games in life that people play. One is the money game.  
+There are [[fundamentally]] two huge games in life that people play. One is the money game.  
 Money is not __going to__ solve __all of__ your problems;  
 but it's __going to__ solve __all of__ your money problems.
 I __think__ people know that. They __realize__ that, __so__ they want to make money.
@@ -67,7 +67,7 @@ Who's number one? Who's number two? Who's number three? And __for__ number three
 
 Politics is __an example of__ **a** status game.
 Even sports is __an example of__ a status game. To be the winner, __there must be__ a loser.
-Fundamentally, __I don't like__ status games.
+[[Fundamentally]], __I don't like__ status games.
 __They (status games)__ play __an__ important role in our society, so we can __figure out__ who's in charge.
 But you play them(status games) because they're __a__ necessary evil.
 
