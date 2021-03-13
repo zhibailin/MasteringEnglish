@@ -53,7 +53,7 @@ that __is applied for the purpose of__ creating abundance.
 So, I think [[fundamentally]] everybody can be wealthy.
 
 This thought experiment I want you to think through is 
-__imagine if__ everybody __had__ the knowledge of a good software engineer and a good hardware engineer.
+__imagine if__ everybody __had__ _the knowledge of_ a good software engineer and a good hardware engineer.
 __If__ you __could__ go out there,
 __and__ you __could__ build robots, and computers, and bridges, and program them.
 Let's say every human knew how to do that.
