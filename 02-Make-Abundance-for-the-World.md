@@ -64,4 +64,4 @@ what __would__ happen is
 we __would__ build robots, machines, software and hardware to do everything.
 We __would__ all be living in massive abundance.
 We __would__ essentially be retired, 
-
+__in the sense that__ none of us __would__ have to work for any of the [[basics]]. 
