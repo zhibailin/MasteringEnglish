@@ -63,3 +63,5 @@ My __guess__ is
 what __would__ happen is
 we __would__ build robots, machines, software and hardware to do everything.
 We __would__ all be living in massive abundance.
+We __would__ essentially be retired, 
+
