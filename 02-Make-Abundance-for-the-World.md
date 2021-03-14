@@ -58,3 +58,8 @@ __If__ you __could__ go out there,
 __and__ you __could__ build robots, and computers, and bridges, and program them.
 Let's say every human knew how to do that.
 __What do you think__ society __would look like in__ 20 years?
+
+My __guess__ is
+what __would__ happen is
+we __would__ build robots, machines, software and hardware to do everything.
+We __would__ all be living in massive abundance.
