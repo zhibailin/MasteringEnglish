@@ -65,3 +65,9 @@ we __would__ build robots, machines, software and hardware to do everything.
 We __would__ all be living in massive abundance.
 We __would__ essentially be retired, 
 __in the sense that__ none of us __would__ have to work for any of the [[basics]]. 
+
+We'__d__ even have __robotic nurses__.
+We'__d__ have __machine driven__ hospitals.
+We'__d__ have __self-driving cars__.
+We'__d__ have farms __that are 100% automated__.
+We'__d__ have __clean energy__.
