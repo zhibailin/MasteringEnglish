@@ -71,3 +71,5 @@ We'__d__ have __machine driven__ hospitals.
 We'__d__ have __self-driving cars__.
 We'__d__ have farms __that are 100% automated__.
 We'__d__ have __clean energy__.
+
+__At that point__, we __could__ __use__ technology breakthroughs __to__ get everything that we wanted.
