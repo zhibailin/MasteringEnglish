@@ -75,3 +75,5 @@ We'__d__ have __clean energy__.
 __At that point__, we __could__ __use__ technology breakthroughs __to__ get everything that we wanted.
 __If__ anyone __is still__ working at that point, they're __working as a form of__ expressing their creativity.
 They're working because it's [[in]] them to contribute, and to build and design things.
+
+__I don't think__ capitalism is evil.
