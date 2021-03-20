@@ -77,3 +77,4 @@ __If__ anyone __is still__ working at that point, they're __working as a form of
 They're working because it's [[in]] them to contribute, and to build and design things.
 
 __I don't think__ capitalism is evil.
+Capitalism __is actually__ good.
