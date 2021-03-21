@@ -79,3 +79,6 @@ They're working because it's [[in]] them to contribute, and to build and design 
 __I don't think__ capitalism is evil.
 Capitalism __is actually__ good.
 __It's just that__ 
+it gets hijacked.
+__It gets hijacked by__ improper pricing of externalities.
+__It gets hijacked by__ improper yields, where you have corruption, or you have monopolies.
