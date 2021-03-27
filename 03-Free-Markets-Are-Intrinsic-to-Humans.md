@@ -14,3 +14,5 @@ __If__ we __weren't__ having a good information exchange, you'__d__ go talk to s
 So, __the notion of__ exchange, and __keeping track of__ credits and debits, this is built into us as flexible social animals.
 
 We are the only animals in the animal kingdom that cooperate across genetic boundaries. Most animals __don't [[even]]__ cooperate.
+But when they do, they cooperate only in [[pack]]s where they co-evolve together,
+and they shere blood, so they have some __shared interests__.
