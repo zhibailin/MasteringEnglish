@@ -18,3 +18,4 @@ But when they do, they cooperate only in [[pack]]s where they co-evolve together
 and they shere blood, so they have some __shared interests__.
 
 Humans __don't have__ that.
+I can cooperate with [[you guys]].
