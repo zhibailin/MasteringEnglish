@@ -19,3 +19,4 @@ and they shere blood, so they have some __shared interests__.
 
 Humans __don't have__ that.
 I can cooperate with [[you guys]].
+One of you is a Serbian. The other one is __a__ Persian [[by origin]]. And I'm Indian __by origin__.
