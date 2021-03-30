@@ -21,3 +21,5 @@ Humans __don't have__ that.
 I can cooperate with [[you guys]].
 One of you is a Serbian. The other one is __a__ Persian [[by origin]]. And I'm Indian __by origin__.
 We have very little blood in common, __basically none__. But we still [[cooperate]].
+
+What let**s** us cooperate?
