@@ -26,3 +26,4 @@ What let**s** us cooperate?
 __It's because__ we can keep track of debits and credits.
 Who [[put in]] how much work?
 Who contributed how much?
+__That's all__ free market capitalism __is__.
