@@ -23,3 +23,6 @@ One of you is a Serbian. The other one is __a__ Persian [[by origin]]. And I'm I
 We have very little blood in common, __basically none__. But we still [[cooperate]].
 
 What let**s** us cooperate?
+__It's because__ we can keep track of debits and credits.
+Who [[put in]] how much work?
+Who contributed how much?
