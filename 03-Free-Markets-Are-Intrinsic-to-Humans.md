@@ -27,3 +27,7 @@ __It's because__ we can keep track of debits and credits.
 Who [[put in]] how much work?
 Who contributed how much?
 __That's all__ free market capitalism __is__.
+
+So __I strongly believe that__
+__it is innate to__ the human species,
+and __we are going to__ create more and more wealth, and abundance for everybody.
