@@ -31,3 +31,8 @@ __That's all__ free market capitalism __is__.
 So __I strongly believe that__
 __it is innate to__ the human species,
 and __we are going to__ create more and more wealth, and abundance for everybody.
+
+Everybody can be wealthy.
+Everybody can be retired.
+Everybody can be successfull.
+__It is merely a question of__ education and desire.
