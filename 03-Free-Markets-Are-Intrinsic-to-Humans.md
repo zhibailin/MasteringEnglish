@@ -36,3 +36,4 @@ Everybody can be wealthy.
 Everybody can be retired.
 Everybody can be successfull.
 __It is merely a question of__ education and desire.
+You have to want it. __If you don't__ want it, __that's fine__. __Then__ you opt out of the game.
