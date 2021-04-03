@@ -39,3 +39,8 @@ __It is merely a question of__ education and desire.
 You have to want it. __If you don't__ want it, __that's fine__. __Then__ you opt out of the game.
 
 But don't try to [[put down]] the people who are playing the game.
+Because  
+that's the game that [[keep#^90bfe8|keep]]s you __in__ a comfortable warm bed at night.  
+That's the game that [[keep#^148e53|keep]]s [[a roof over your head]].  
+That's the game that [[keep#^1229d9|keep]]s your supermarkets stocked.  
+That's the game that [[keep#^1229d9|keep]]s your iPhone buzzing in your pocket.
