@@ -46,3 +46,4 @@ That's the game that [[keep#^1229d9|keep]]s your supermarkets stocked.
 That's the game that [[keep#^1229d9|keep]]s your iPhone buzzing in your pocket.
 
 So, it is a beautiful game that __is worth__ play**ing** ethically, rationally, morally, socially for the human race.
+[[It's going to continue to]] make us all richer and richer, __until__ we have massive wealth creation for anybody who wants it.
