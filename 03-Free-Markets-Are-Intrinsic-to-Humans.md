@@ -44,3 +44,5 @@ that's the game that [[keep#^90bfe8|keep]]s you __in__ a comfortable warm bed at
 That's the game that [[keep#^148e53|keep]]s [[a roof over your head]].  
 That's the game that [[keep#^1229d9|keep]]s your supermarkets stocked.  
 That's the game that [[keep#^1229d9|keep]]s your iPhone buzzing in your pocket.
+
+So, it is a beautiful game that __is worth__ play**ing** ethically, rationally, morally, socially for the human race.
