@@ -52,3 +52,4 @@ So, it is a beautiful game that __is worth__ play**ing** ethically, rationally, 
 
 Nivi: [[It's not just]] individuals
 __secretly__ despising wealth, right? __There are__ countries, groups, political parties that __overtly__ despise wealth.
+Or [[at least seem to]].
