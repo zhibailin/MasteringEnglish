@@ -53,3 +53,8 @@ So, it is a beautiful game that __is worth__ play**ing** ethically, rationally, 
 Nivi: [[It's not just]] individuals
 __secretly__ despising wealth, right? __There are__ countries, groups, political parties that __overtly__ despise wealth.
 Or [[at least seem to]].
+
+Naval:
+That's right.
+What those countries, political parties, and groups are [[reduce]]d to
+is playing the zero-sum game of status.
