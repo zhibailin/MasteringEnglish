@@ -58,3 +58,5 @@ Naval:
 That's right.
 What those countries, political parties, and groups are [[reduce]]d to
 is playing the zero-sum game of status.
+[[In the process#^596b99|in the process]] 
+to destroy wealth creation, __they drag everybody down to their level__.
