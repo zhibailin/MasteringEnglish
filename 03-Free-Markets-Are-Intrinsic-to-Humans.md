@@ -60,3 +60,7 @@ What those countries, political parties, and groups are [[reduce]]d to
 is playing the zero-sum game of status.
 [[In the process#^596b99|in the process]] 
 to destroy wealth creation, __they drag everybody down to their level__.
+
+Which is why the U.S. is a very popular country for immigrants because of the American dream.
+__Anyone can__ come here, __be__ poor, __and then__ work really hard __and__ make money, __and__ get wealthy.
+[[but#^76cd47|But]] even just make some basic money for their life.
