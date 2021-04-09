@@ -64,3 +64,5 @@ to destroy wealth creation, __they drag everybody down to their level__.
 Which is why the U.S. is a very popular country for immigrants because of the American dream.
 __Anyone can__ come here, __be__ poor, __and then__ work really hard __and__ make money, __and__ get wealthy.
 [[but#^76cd47|But]] even just make some basic money for their life.
+
+Obviously, __the definition of__ wealth __is different for different people__.
