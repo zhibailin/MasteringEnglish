@@ -66,3 +66,4 @@ __Anyone can__ come here, __be__ poor, __and then__ work really hard __and__ mak
 [[but#^76cd47|But]] even just make some basic money for their life.
 
 Obviously, __the definition of__ wealth __is different for different people__.
+A First World citizen's definition of wealth __might be__, "Oh, I have to __make millions of dollars__, and __I'm completely [[done]]__."
