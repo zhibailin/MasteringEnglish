@@ -70,3 +70,5 @@ A First World citizen's definition of wealth __might be__, "Oh, I have to __make
 
 Whereas to a Third World poor immigrant just entering the country, and we were poor immigrants who came here when I was fairly young, to the United States, wealth may just be a much lower number.
 __It may just be__, "I don't have to work a manual labor job for the rest of my life that I don't want to work."
+
+But groups that [[despise]] it will essentially bring the entire group to that level.
