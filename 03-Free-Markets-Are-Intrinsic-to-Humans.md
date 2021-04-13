@@ -72,3 +72,4 @@ Whereas to a Third World poor immigrant just entering the country, and we were p
 __It may just be__, "I don't have to work a manual labor job for the rest of my life that I don't want to work."
 
 But groups that [[despise]] it will essentially bring the entire group to that level.
+If you get too many takers, and not enough makers, society [[fall apart|falls apart]].
