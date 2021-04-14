@@ -73,3 +73,4 @@ __It may just be__, "I don't have to work a manual labor job for the rest of my 
 
 But groups that [[despise]] it will essentially bring the entire group to that level.
 If you get too many takers, and not enough makers, society [[fall apart|falls apart]].
+You [[end up with]] a communist country.
