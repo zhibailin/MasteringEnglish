@@ -77,3 +77,4 @@ You [[end up with]] a communist country.
 __Look at__ the Venezuela, right?
 
 They were so [[busy]] tak**ing**, and divid**ing**, and reallocat**ing**,
+that people are [[literally]] starving in the streets, and __losing kilograms of body weight__ every year __from sheer starvation__.
