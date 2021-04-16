@@ -75,3 +75,5 @@ But groups that [[despise]] it will essentially bring the entire group to that l
 If you get too many takers, and not enough makers, society [[fall apart|falls apart]].
 You [[end up with]] a communist country.
 __Look at__ the Venezuela, right?
+
+They were so [[busy]] tak**ing**, and divid**ing**, and reallocat**ing**,
