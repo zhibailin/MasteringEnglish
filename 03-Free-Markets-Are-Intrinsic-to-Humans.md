@@ -78,3 +78,5 @@ __Look at__ the Venezuela, right?
 
 They were so [[busy]] tak**ing**, and divid**ing**, and reallocat**ing**,
 that people are [[literally]] starving in the streets, and __losing kilograms of body weight__ every year __from sheer starvation__.
+
+__Another way to think about it is__ imagine an __organism__ that has too many __parasites__.
