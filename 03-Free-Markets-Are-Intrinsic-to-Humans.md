@@ -81,3 +81,6 @@ that people are [[literally]] starving in the streets, and __losing kilograms of
 
 __Another way to think about it is__ imagine an __organism__ that has too many [[parasites]].
 You __need__ some small number of [[parasites]] __to__ stay healthy.
+
+You need a lot of symbiotes. All the mitochondria in all our cells that help us respirate and burn oxygen. __These are__ symbiotes __that__ help us survive. 
+__We couldn't__ survive __without__ them.
