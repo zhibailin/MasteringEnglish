@@ -84,3 +84,5 @@ You __need__ some small number of [[parasites]] __to__ stay healthy.
 
 You need a lot of symbiotes. All the mitochondria in all our cells that help us respirate and burn oxygen. __These are__ symbiotes __that__ help us survive. 
 __We couldn't__ survive __without__ them.
+
+But, __to me__, those are partners in the wealth creation that creates the human body.
