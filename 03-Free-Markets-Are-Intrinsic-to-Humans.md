@@ -86,3 +86,8 @@ You need a lot of symbiotes. All the mitochondria in all our cells that help us 
 __We couldn't__ survive __without__ them.
 
 But, __to me__, those are partners in the wealth creation that creates the human body.
+
+But 
+__if__ you __just were__ filled with parasites,
+__if__ you __got infected with__ worms, or a virus, or bacteria
+that were __purely parasitical__, you __would__ die.
