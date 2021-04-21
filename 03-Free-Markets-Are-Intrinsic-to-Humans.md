@@ -80,7 +80,7 @@ They were so [[busy]] tak**ing**, and divid**ing**, and reallocat**ing**,
 that people are [[literally]] starving in the streets, and __losing kilograms of body weight__ every year __from sheer starvation__.
 
 __Another way to think about it is__ imagine an __organism__ that has too many [[parasites]].
-You __need__ some small number of [[parasites]] __to__ stay healthy.
+You __need__ some __small number of__ [[parasites]] __to__ stay healthy.
 
 You need a lot of symbiotes. All the mitochondria in all our cells that help us respirate and burn oxygen. __These are__ symbiotes __that__ help us survive. 
 __We couldn't__ survive __without__ them.
@@ -91,3 +91,4 @@ But
 __if__ you __just were__ filled with parasites,
 __if__ you __got infected with__ worms, or a virus, or bacteria
 that were __purely parasitical__, you __would__ die.
+So any organism can only withstand __a small number of__ parasites.
