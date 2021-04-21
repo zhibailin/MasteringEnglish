@@ -91,4 +91,4 @@ But
 __if__ you __just were__ filled with parasites,
 __if__ you __got infected with__ worms, or a virus, or bacteria
 that were __purely parasitical__, you __would__ die.
-So any organism can only withstand __a small number of__ parasites.
+So any organism can only [[withstand]] __a small number of__ parasites.
