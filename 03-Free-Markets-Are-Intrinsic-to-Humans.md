@@ -96,7 +96,7 @@ When the parasitic element __gets too far out of control__, you die.
 
 __Again__
 __I'm talking about__ ethical wealth creation.
-__I'm not talking about__ monopolies,
-__I'm not talking about__ crony capitalism.
-__I'm not talking about__ mispriced externalities like the enviroment.
+__I'm not talking about__ [[monopolies]],
+__I'm not talking about__ [[crony capitalism]].
+__I'm not talking about__ [[mispriced externalities]] like the environment.
 __I'm talking about__ free minds, and free markets.
