@@ -100,3 +100,5 @@ __I'm not talking about__ [[monopolies]],
 __I'm not talking about__ [[crony capitalism]].
 __I'm not talking about__ [[mispriced externalities]] like the environment.
 __I'm talking about__ free minds, and free markets.
+
+Small-scale exchange between humans __that's voluntary__, and doesn't have an [[outsized]] [[impact on]] others.
