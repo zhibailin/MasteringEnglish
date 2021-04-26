@@ -102,3 +102,5 @@ __I'm not talking about__ [[mispriced externalities]] like the environment.
 __I'm talking about__ free minds, and free markets.
 
 Small-scale exchange between humans __that's voluntary__, and doesn't have an [[outsized]] [[impact on]] others.
+
+I think that kind of wealth creation, __if__ a society does not respect it, if the group does not respect it, __then__ society __will__ [[plunge into]] ruin, and darkness.
