@@ -9,4 +9,4 @@ __without having to rely on__ luck.
 
 A lot of people __think__ making money is [[about]] luck.
 __It's not.__ 
-__It's [[about]]__ becoming the [[kind]] of people that makes money.
+__It's [[about]]__ becoming the [[kind]] of person that makes money.
