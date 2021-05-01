@@ -14,3 +14,4 @@ __It's [[about]]__ becoming the [[kind]] of person that makes money.
 __I like to think that__
 __if__ I lost __all my money__ and if you drop me on a random street in any __English-speaking country__, 
 within 5, 10 years I'__d__ be wealthy again.
+Because it's __a skill set__ that I've __developed__ and I think anyone can develop.
