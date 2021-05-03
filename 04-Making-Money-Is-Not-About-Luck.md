@@ -18,3 +18,5 @@ Because it's __a skill set__ that I've __developed__ and I think anyone can deve
 
 In 1000 __parallel universes__, you want to be weatlthy in 999 of them. You don't want be wealthy in the 50 of them __where__ you [[got lucky]].
 We want to [[factor]] luck out of it.
+
+__There's__ four __kinds of__ luck that we're talking about. This came from a book. Marc Andreessen, __wrote a blog post about__ it.
