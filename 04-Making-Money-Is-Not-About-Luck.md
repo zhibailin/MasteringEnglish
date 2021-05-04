@@ -1,6 +1,6 @@
 > Become the kind of person who makes money
 
-## Making money isn't about luck
+## Making money isn't about  
 **Naval**:
 __Obviously__,
 __we want to be__ wealthy, and
@@ -20,3 +20,7 @@ In 1000 __parallel universes__, you want to be weatlthy in 999 of them. You don'
 We want to [[factor]] luck out of it.
 
 __There's__ four __kinds of__ luck that we're talking about. This came from a book. Marc Andreessen, __wrote a blog post about__ it.
+
+### 1. Blind luck
+The first kind of luck you might say is blind luck.
+__Where__ I just [[got lucky]] because something completely out of my control happened. That's fortune, that's fate.
