@@ -24,3 +24,10 @@ __There's__ four __kinds of__ luck that we're talking about. This came from a bo
 ### 1. Blind luck
 The first kind of luck you might say is blind luck.
 __Where__ I just [[got lucky]] because something completely out of my control happened. That's fortune, that's fate.
+
+### 2. Luck from hustling
+Then there's luck comes through persistence, hard work, [[hustle]] and motion. Which is
+when you're running around creating lots of opportunities,
+you're generating lots of energy, 
+you're doing a lot of things, 
+lots of things will __get [[stir]]red up in the dust__.
