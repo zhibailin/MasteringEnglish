@@ -31,3 +31,5 @@ when you're running around creating lots of opportunities,
 you're generating lots of energy, 
 you're doing a lot of things, 
 lots of things will __get [[stir]]red up in the dust__.
+
+__It's almost like__ mix**ing** a [[petri dish]] and see**ing** what combines.
