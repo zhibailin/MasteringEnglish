@@ -34,3 +34,4 @@ lots of things will __get [[stir]]red up in the dust__.
 
 __It's almost like__ mix**ing** a [[petri dish]] and see**ing** what combines.
 Or mixing __a bunch of reagents__ and seeing what [[combine]]s.
+You'__re__ generating enough __force__ and hustle and energy __that__ luck will find you.
