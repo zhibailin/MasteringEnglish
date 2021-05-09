@@ -35,3 +35,9 @@ lots of things will __get [[stir]]red up in the dust__.
 __It's almost like__ mix**ing** a [[petri dish]] and see**ing** what combines.
 Or mixing __a bunch of reagents__ and seeing what [[combine]]s.
 You'__re__ generating enough __force__ and hustle and energy __that__ luck will find you.
+
+We, as a group, you could argue, got together because of that. [Nenad] had __[[put up]] these great videos online__, I saw them __on Twitter__. In that sense, he generated his own luck by creating videos until people like me keep finding him.
+
+
+<!-- links -->
+[Nenad]: (https://www.youtube.com/c/Illacertus/featured)
