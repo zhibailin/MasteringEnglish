@@ -38,6 +38,8 @@ You'__re__ generating enough __force__ and hustle and energy __that__ luck will 
 
 We, as a group, you could argue, got together because of that. [Nenad] had __[[put up]] these great videos online__, I saw them __on Twitter__. In that sense, he generated his own luck by creating videos until people like me keep finding him.
 
+### Luck from prepration
+__A third way is that__
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
