@@ -40,6 +40,7 @@ We, as a group, you could argue, got together because of that. [Nenad] had __[[p
 
 ### Luck from prepration
 __A third way is that__
+you __become very good at__ [[spot]]ting luck.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
