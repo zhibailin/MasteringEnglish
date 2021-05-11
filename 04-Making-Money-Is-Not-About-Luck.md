@@ -41,6 +41,7 @@ We, as a group, you could argue, got together because of that. [Nenad] had __[[p
 ### Luck from prepration
 __A third way is that__
 you __become very good at__ [[spot]]ting luck.
+__If__ you are vary [[skilled]] in a field, you __will__ [[notice]] when a lucky [[break]] happens in that field.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
