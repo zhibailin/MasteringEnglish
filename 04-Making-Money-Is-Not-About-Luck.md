@@ -45,6 +45,10 @@ __If__ you are vary [[skilled]] in a field, you __will__ [[notice]] when a lucky
 When other people who aren't [[attuned]] to it won't [[notice]].
 So you become sensitive to luck and __that's through__ skill and knowleage and work.
 
+### 4. Luck from your unique character
+Then the last kind of luck is the weiredest, hardest kind. But that's what we want to talk about.
+Which is where you build a unique character, a unique brand, a unique [[mindset]], __where then luck finds you__.
+
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
