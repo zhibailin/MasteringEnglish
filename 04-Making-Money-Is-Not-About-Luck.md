@@ -38,11 +38,13 @@ You'__re__ generating enough __force__ and hustle and energy __that__ luck will 
 
 We, as a group, you could argue, got together because of that. [Nenad] had __[[put up]] these great videos online__, I saw them __on Twitter__. In that sense, he generated his own luck by creating videos until people like me keep finding him.
 
-### Luck from prepration
+### 3. Luck from prepration
 __A third way is that__
 you __become very good at__ [[spot]]ting luck.
 __If__ you are vary [[skilled]] in a field, you __will__ [[notice]] when a lucky [[break]] happens in that field.
 When other people who aren't [[attuned]] to it won't [[notice]].
+So you become sensitive to luck and __that's through__ skill and knowleage and work.
+
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
