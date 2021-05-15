@@ -49,6 +49,7 @@ So you become sensitive to luck and __that's through__ skill and knowleage and w
 Then the last kind of luck is the weiredest, hardest kind. But that's what we want to talk about.
 Which is where you build a unique character, a unique brand, a unique [[mindset]], __where then luck finds you__.
 
+For example, let's say that you're the __best__ persion in the world __at__ deep sea underwater diving.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
