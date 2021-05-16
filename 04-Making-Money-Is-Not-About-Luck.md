@@ -50,6 +50,7 @@ Then the last kind of luck is the weiredest, hardest kind. But that's what we wa
 Which is where you build a unique character, a unique brand, a unique [[mindset]], __where then luck finds you__.
 
 For example, let's say that you're the __best__ persion in the world __at__ deep sea underwater diving.
+You're known to [[take on]] __deep sea underwater dives__ that nobody [[else]] will [[even]] attempt to [[dare]].
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
