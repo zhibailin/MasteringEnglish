@@ -53,5 +53,7 @@ For example, let's say that you're the __best__ persion in the world __at__ deep
 You're known to [[take on]] __deep sea underwater dives__ that
 __nobody [[else]] will [[even]] attempt to [[dare]]__.
 
+Then, __by [[sheer]] luck__, somebody finds __a [[sunken]] treasure ship__ off the coast.
+
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
