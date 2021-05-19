@@ -54,6 +54,7 @@ You're known to [[take on]] __deep sea underwater dives__ that
 __nobody [[else]] will [[even]] attempt to [[dare]]__.
 
 Then, __by [[sheer]] luck__, somebody finds __a [[sunken]] treasure ship__ off the coast.
+They can't get it. Well, __their luck just became you luck__, because they're going to come to you to get that treasure. You're going to __get paid for__ it.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
