@@ -1,0 +1,2 @@
+- a large strong __box__, typically made of wood and used for storage or shipping.
+    - *British* the __treasury__ or financial resources of some institutions: the university chest.
