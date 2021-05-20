@@ -57,6 +57,7 @@ Then, __by [[sheer]] luck__, somebody finds __a [[sunken]] treasure ship__ off t
 They can't get it. Well, __their luck just became you luck__, because they're going to come to you to get that treasure. You're going to __get paid for__ it.
 
 Now, that's __an extreme example__.
+The person who [[got lucky]] by finding the treasure [[chest]], that was __blind luck__.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
