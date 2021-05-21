@@ -58,6 +58,7 @@ They can't get it. Well, __their luck just became you luck__, because they're go
 
 Now, that's __an extreme example__.
 The person who [[got lucky]] by finding the treasure [[chest]], that was __blind luck__.
+But them coming to you and asking you to extract it and having to give you half, __that's not luck__.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
