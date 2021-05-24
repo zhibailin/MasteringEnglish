@@ -61,6 +61,8 @@ The person who [[got lucky]] by finding the treasure [[chest]], that was __blind
 But them coming to you and asking you to extract it and having to give you half, __that's not luck__.
 
 You create your own luck. You __put yourself in a [[position]]__ to be able to [[capitalize]] __on__ that luck.
+Or to attract that luck when nobody [[else]] has created that opportunity for themselves.
+When we talk about __"without getting lucky"__, we want to be [[deterministic]], we don't want to __[[leave]] it to chance__.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
