@@ -1,6 +1,6 @@
 > Become the kind of person who makes money
 
-## Making money isn't about  
+## Making money isn't about  luck
 **Naval**:
 __Obviously__,
 __we want to be__ wealthy, and
@@ -63,6 +63,11 @@ But them coming to you and asking you to extract it and having to give you half,
 You create your own luck. You __put yourself in a [[position]]__ to be able to [[capitalize]] __on__ that luck.
 Or to attract that luck when nobody [[else]] has created that opportunity for themselves.
 When we talk about __"without getting lucky"__, we want to be [[deterministic]], we don't want to __[[leave]] it to chance__.
+
+## In 1000 parallel universes, you want to be wealthy in 999of them
+
+Nivi: Do you want to [[elaborate]] a little bit more __on__ the idea that
+in __1000 [[parallel]] universes__ you want to get rich in 999 of them?
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
