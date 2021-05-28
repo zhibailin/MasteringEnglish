@@ -69,6 +69,7 @@ When we talk about __"without getting lucky"__, we want to be [[deterministic]],
 Nivi: Do you want to [[elaborate]] a little bit more __on__ the idea that
 in __1000 [[parallel]] universes__ you want to get rich in 999 of them?
 __I think some people are going to see that and say__,"
+that sounds impossible, __it sounds like it's too good to be true__."
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
