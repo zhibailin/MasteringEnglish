@@ -76,6 +76,7 @@ No, __I don't think it's impossible__.
 I think that you may have to work a little bit harder [[at it]]
 [[given]] your __starting [[circumstances]]__.
 __I [[start]]ed as__ a poor kid in India,
+so __if I can__ [[make it]], __anybody can__, __in that sense__.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
