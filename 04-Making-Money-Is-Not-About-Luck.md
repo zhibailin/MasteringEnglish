@@ -73,6 +73,7 @@ that sounds impossible, __it sounds like it's too good to be true__."
 
 Naval:
 No, __I don't think it's impossible__.
+I think that you may have to work a little bit harder [[at it]]
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
