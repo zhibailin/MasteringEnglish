@@ -78,6 +78,11 @@ I think that you may have to work a little bit harder [[at it]]
 __I [[start]]ed as__ a poor kid in India,
 so __if I can__ [[make it]], __anybody can__, __in that sense__.
 
+Now, obviously, 
+__I had all my [[limbs]]__, and 
+I had my __mental faculties__ and
+I did have an education.
+
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
 ****
