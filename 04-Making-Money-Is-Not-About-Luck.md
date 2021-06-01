@@ -82,6 +82,7 @@ Now, obviously,
 __I had all my [[limbs]]__, and 
 I had my __mental faculties__ and
 I did have an education.
+There are some [[prerequisite]]s you can't __get past__.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
