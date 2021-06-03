@@ -86,6 +86,8 @@ There are some [[prerequisite]]s you can't __get past__.
 But if you are listening to this video or podcast, __you probably have__ [[the requisite means]] __at your [[disposal]]__,
 which is __a [[function]]ing body__ and __a functioning mind__.
 
+And I've [[encounter]]ed [[plenty]] of bad luck __[[along the way]]__.
+
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
 ****
