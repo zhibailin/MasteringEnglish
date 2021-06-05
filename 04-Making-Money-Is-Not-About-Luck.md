@@ -87,6 +87,8 @@ But if you are listening to this video or podcast, __you probably have__ [[the r
 which is __a [[function]]ing body__ and __a functioning mind__.
 
 And I've [[encounter]]ed [[plenty]] of bad luck __[[along the way]]__.
+The first little fortune that I made, I instantly lost __in the stock market__.
+The second little fortune that I made, or I should have made, I basically __got cheated by__ my business partners. 
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
