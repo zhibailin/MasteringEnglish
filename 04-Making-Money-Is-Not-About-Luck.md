@@ -92,6 +92,7 @@ The second little fortune that I made, or I should have made, I basically __got 
 __It's only__ the third time around has been a [[charm]].
 And, **even then**, __it has been in a slow and steady struggle__.
 I haven't made money in my life __in one giant [[payout]]__.
+__It's always been__ a whole bunch of small things [[piling up]].
 
 
 <!-- links -->
