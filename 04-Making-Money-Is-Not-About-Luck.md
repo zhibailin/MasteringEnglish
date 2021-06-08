@@ -95,6 +95,7 @@ I haven't made money in my life __in one giant [[payout]]__.
 __It's always been__ a whole bunch of small things [[pile|piling]] up.
 __It's more about__ consistently creating wealth by
 creating [[business]]es, including opportunities and creating [[investment]]s.
+__It hasn't been__ a giant [[one-off]] thing.
 
 
 <!-- links -->
