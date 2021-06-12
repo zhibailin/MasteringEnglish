@@ -104,6 +104,7 @@ It stacks up little [[bit]], [[chip]]s at a time.
 More options, more businesses, more investments, more things that I can do.
 
 __Same way that__ someone like [Nenad] (@illacertus), he's __building his brand online__.
+He's building videos. It's not like any video is going to suddenly [[shower]] him __with__ [[riches]] overnight.
 
 
 <!-- links -->
