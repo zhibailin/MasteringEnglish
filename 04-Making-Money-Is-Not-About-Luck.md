@@ -106,6 +106,8 @@ More options, more businesses, more investments, more things that I can do.
 __Same way that__ someone like [Nenad] (@illacertus), he's __building his brand online__.
 He's building videos. It's not like any video is going to suddenly [[shower]] him __with__ [[riches]] overnight.
 
+It's going to be __a long [[lifetime]] of__ learning, of reading, of creating that's going to [[compound]].
+
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
