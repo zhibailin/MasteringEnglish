@@ -108,6 +108,7 @@ He's building videos. It's not like any video is going to suddenly [[shower]] hi
 
 It's going to be __a long [[lifetime]] of__ learning, of reading, of creating that's going to [[compound]].
 
+__We're talking about__ getting wealthy __so__ you can retire, so you have your freedom.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
