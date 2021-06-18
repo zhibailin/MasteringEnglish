@@ -110,6 +110,9 @@ It's going to be __a long [[lifetime]] of__ learning, of reading, of creating th
 
 __We're talking about__ getting wealthy __so__ you can retire, so you have your freedom.
 __Not__ retire __in the [[sense]]__ that you don't do anything.
+But __in the sense that__ 
+you __don't have to__ be any place __you don't want to__ be,
+you __don't have to__ do anything __you don't want__ to do,
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
