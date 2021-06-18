@@ -113,6 +113,10 @@ __Not__ retire __in the [[sense]]__ that you don't do anything.
 But __in the sense that__ 
 you __don't have to__ be any place __you don't want to__ be,
 you __don't have to__ do anything __you don't want__ to do,
+you __can__ wake up when you want,
+you __can__ sleep when you want,
+you __don't have__ a boss.
+That's freedom.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
