@@ -1,0 +1,5 @@
+- reach
+  - to get to sleep 入睡
+- progress to
+  - It got to 9 o'clock 已经 9 点了
+  - *figurative* to get to the top 达到巅峰

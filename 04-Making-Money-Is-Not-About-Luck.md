@@ -118,6 +118,8 @@ you __can__ sleep when you want,
 you __don't have__ a boss.
 That's freedom.
 
+We're talking about enough wealth to [[get to]] freedom.
+
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
 ****
