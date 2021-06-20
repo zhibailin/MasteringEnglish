@@ -119,6 +119,7 @@ you __don't have__ a boss.
 That's freedom.
 
 We're talking about enough wealth to [[get to]] freedom.
+Especially [[thanks]] to the Internet [[these days]],
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
