@@ -121,6 +121,7 @@ That's freedom.
 We're talking about enough wealth to [[get to]] freedom.
 Especially [[thanks]] to the Internet [[these days]],
 __though__, opportunities are __massively abundant__. I, in fact, __have too many ways to__ make money, I __don't__ have enough time.
+I __have opportunities [[pour]]ing out of my [[ear]]s__ and the thing I keep running out of is time.
 
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
