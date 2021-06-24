@@ -123,6 +123,8 @@ Especially [[thanks]] to the Internet [[these days]],
 __though__, opportunities are __massively abundant__. I, in fact, __have too many ways to__ make money, I __don't__ have enough time.
 I __have opportunities [[pour]]ing out of my [[ear]]s__ and the thing I keep running out of is time.
 
+__There's just so many__ ways to create wealth, to create products, to create businesses, to create opportunities, and to, as a [[byproduct]], get paid by society that I can't [[even]] [[handle]] it [[all]].
+
 <!-- links -->
 [Nenad]: (https://www.youtube.com/c/Illacertus/featured)
 ****
