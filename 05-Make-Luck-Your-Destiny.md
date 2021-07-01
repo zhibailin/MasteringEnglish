@@ -6,3 +6,4 @@ And then for that last kind of luck that __comes to you__
 out of the unique way that you act,
 __there’s no real cliche for__ it.
 
+So, for the first three kinds, there’s “[[dumb luck]],” or “[[blind]] luck.” That’s the first kind of luck. 
