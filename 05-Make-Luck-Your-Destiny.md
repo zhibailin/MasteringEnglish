@@ -7,3 +7,5 @@ out of the unique way that you act,
 __there’s no real cliche for__ it.
 
 So, for the first three kinds, there’s “[[dumb luck]],” or “[[blind]] luck.” That’s the first kind of luck. 
+
+ The second kind of luck there’s the cliché that “fortune favors the [[bold]].” That’s a person who gets lucky just by [[stir]]ring the [[pot]] and acting.
