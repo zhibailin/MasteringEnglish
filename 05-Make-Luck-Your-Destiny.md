@@ -11,3 +11,10 @@ So, for the first three kinds, there’s “[[dumb luck]],” or “[[blind]] lu
 The second kind of luck there’s the cliché that “fortune favors the [[bold]].” That’s a person who gets lucky just by [[stir]]ring the [[pot]] and acting.
 
 The third kind of luck, people say that __“chance favors the prepared mind.”__
+
+But __for the fourth kind of luck__, there isn’t __a common cliché__ [[out there]] 
+that __matches the unique character__ of your action, 
+which I think is interesting 
+and __perhaps__ an opportunity 
+and __it also shows that__ people aren’t [[necessarily]] taking advantage of that kind of luck 
+the way they should be.
