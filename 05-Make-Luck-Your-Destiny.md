@@ -12,7 +12,7 @@ The second kind of luck there’s the cliché that “fortune favors the [[bold]
 
 The third kind of luck, people say that __“chance favors the prepared mind.”__
 
-But __for the fourth kind of luck__, there isn’t __a common cliché__ [[out there]] 
+But __for the fourth kind of luck__, there isn’t __a common cliché__ [[out]] there
 that __matches the unique character__ of your action, 
 which I think is interesting 
 and __perhaps__ an opportunity 
