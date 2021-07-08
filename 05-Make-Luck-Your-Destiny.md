@@ -18,3 +18,7 @@ which I think is interesting
 and __perhaps__ an opportunity 
 and __it also shows that__ people aren’t [[necessarily]] taking advantage of that kind of luck 
 the way they should be.
+
+Naval: 
+__I think [[also]]__
+at that point, it starts becoming so deterministic that it stops being luck. 
