@@ -22,3 +22,6 @@ the way they should be.
 Naval: 
 __I think [[also]]__
 at that point, it starts becoming so deterministic that it stops being luck. 
+So, the definition starts [[fade|fading]] from luck to more [[destiny]]. 
+So, I would [[characterize]] that fourth one __as__
+you build your character in a certain way and then your character becomes your [[destiny]].
