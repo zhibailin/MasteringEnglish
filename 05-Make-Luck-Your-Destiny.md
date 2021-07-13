@@ -25,3 +25,6 @@ at that point, it starts becoming so deterministic that it stops being luck.
 So, the definition starts [[fade|fading]] from luck to more [[destiny]]. 
 So, I would [[characterize]] that fourth one __as__
 you build your character in a certain way and then your character becomes your [[destiny]].
+
+## Build your character so opportunity finds you
+Character, One of the things I think that is important to making money,when you want the kind of reputation that makes people __do deals__ through you. 
