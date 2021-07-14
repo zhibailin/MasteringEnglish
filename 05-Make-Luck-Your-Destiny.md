@@ -28,3 +28,4 @@ you build your character in a certain way and then your character becomes your [
 
 ## Build your character so opportunity finds you
 Character, One of the things I think that is important to making money,when you want the kind of reputation that makes people __do deals__ through you. 
+I use the example of like, __if__ you’re a great diver __then__ treasure __hunters will come__ and give you a piece of the treasure for your diving skills.
