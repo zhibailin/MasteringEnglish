@@ -38,3 +38,6 @@ and he gets to buy [[warrant]]s, and [[bailout]] banks
 and do things that other people can’t do because of his reputation.
 
 But of course that’s [[fragile]]. 
+__It has__ [[accountability]] __on the [[line]]__, 
+__it has__ a strong brand __on the line__, and as we will talk about later, 
+that comes __with [[accountability]] [[attached]]__.
