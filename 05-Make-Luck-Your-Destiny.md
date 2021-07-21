@@ -36,3 +36,5 @@ Warren Buffett, he gets __offered__ [[deal]]s,
 and he [[get to|gets to]] buy companies, 
 and he gets to buy [[warrant]]s, and [[bailout]] banks 
 and do things that other people can’t do because of his reputation.
+
+But of course that’s [[fragile]]. 
