@@ -41,3 +41,9 @@ But of course that’s [[fragile]].
 __It has__ [[accountability]] __on the [[line]]__, 
 __it has__ a strong brand __on the line__, and as we will talk about later, 
 that comes __with [[accountability]] [[attached]]__.
+
+But I would say
+your character, your reputation, 
+__these are things that__ you can build 
+__then will__ __let you__ take up advantage of opportunities 
+__that__ other people may [[characterize]] as lucky but you know that it wasn’t luck.
