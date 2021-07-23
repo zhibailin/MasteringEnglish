@@ -47,3 +47,6 @@ your character, your reputation,
 __these are things that__ you can build 
 __then will__ __let you__ take up advantage of opportunities 
 __that__ other people may [[characterize]] as lucky but you know that it wasn’t luck.
+
+Nivi: 
+You said that this fourth kind of luck __is [[more or less]] a [[destiny]]__. 
