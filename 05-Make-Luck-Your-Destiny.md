@@ -52,3 +52,5 @@ Nivi:
 You said that this fourth kind of luck __is [[more or less]] a [[destiny]]__. 
 There’s a [[quote]] from that original book that was in Marc’s blog posts from Benjamin Disraeli, who I think was the __former [[prime]] [[minister]]__ of the UK. 
 The quote ~~to describe this kind of luck~~ was, “we make our [[fortune]]s and we call them fate.”
+
+## You have to be a little [[eccentric]] to be out on the [[frontier]] by yourself
