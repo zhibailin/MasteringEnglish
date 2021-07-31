@@ -54,3 +54,6 @@ There’s a [[quote]] from that original book that was in Marc’s blog posts fr
 The quote ~~to describe this kind of luck~~ was, “we make our [[fortune]]s and we call them fate.”
 
 ## You have to be a little [[eccentric]] to be out on the [[frontier]] by yourself
+
+There were a couple other interesting things about this kind of luck that were mentioned in the blog post, I think it’ll be good for the listeners to hear about is that, this fourth kind of luck __can almost come out of [[eccentric]] ways__ that you do your things 
+and that [[eccentricity]] __is not necessarily a bad thing in this case__. In fact, it’s a good thing.
