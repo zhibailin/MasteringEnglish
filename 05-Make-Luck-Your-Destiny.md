@@ -57,3 +57,10 @@ The quote ~~to describe this kind of luck~~ was, “we make our [[fortune]]s and
 
 There were a couple other interesting things about this kind of luck that were mentioned in the blog post, I think it’ll be good for the listeners to hear about is that, this fourth kind of luck __can almost come out of [[eccentric]] ways__ that you do your things 
 and that [[eccentricity]] __is not necessarily a bad thing in this case__. In fact, it’s a good thing.
+
+Naval: 
+Yeah, absolutely. 
+Because the world is a very efficient place, so, everyone has [[dig|dug]]
+[[through]] all the obvious places to [[dig]]
+[[and so]] to find something that’s new and [[novel]] and [[uncovered]], 
+__it helps to be__ operat**ing** on a [[frontier]].
