@@ -64,3 +64,5 @@ Because the world is a very efficient place, so, everyone has [[dig|dug]]
 [[through]] all the obvious places to [[dig]]
 [[and so]] to find something that’s new and [[novel]] and [[uncovered]], 
 __it helps to be__ operat**ing** on a [[frontier]].
+
+Where __[[right]] there__ you have to be a little [[eccentric]] to be out __on the frontier__ by yourself, and then you have to __be willing to__ dig deeper than other people do, deeper than seems [[rational]] __just because__ you’re interested.
