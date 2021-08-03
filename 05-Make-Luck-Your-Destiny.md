@@ -66,3 +66,8 @@ Because the world is a very efficient place, so, everyone has [[dig|dug]]
 __it helps to be__ operat**ing** on a [[frontier]].
 
 Where __[[right]] there__ you have to be a little [[eccentric]] to be out __on the frontier__ by yourself, and then you have to __be willing to__ dig deeper than other people do, deeper than seems [[rational]] __just because__ you’re interested.
+
+Nivi: 
+Yeah, the two [[quote]]s that I’ve seen that express this kind of luck __in addition to__ that Benjamin Disraeli one, are this one from Sam Altman where he said, __“extreme people get extreme results.”__
+I think that’s __pretty nice__. 
+And then there’s __this other one__ from Jeffrey Pfeffer, who is __a professor at__ Stanford that, __“you can’t be normal and expect [[abnormal]] returns.”__ __I’ve always enjoyed__ that one too.
