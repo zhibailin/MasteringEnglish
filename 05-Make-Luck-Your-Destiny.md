@@ -71,3 +71,8 @@ Nivi:
 Yeah, the two [[quote]]s that I’ve seen that express this kind of luck __in addition to__ that Benjamin Disraeli one, are this one from Sam Altman where he said, __“extreme people get extreme results.”__
 I think that’s __pretty nice__. 
 And then there’s __this other one__ from Jeffrey Pfeffer, who is __a professor at__ Stanford that, __“you can’t be normal and expect [[abnormal]] returns.”__ __I’ve always enjoyed__ that one too.
+
+Naval: 
+Yeah. And one quote that I like 
+~~which is __the exact [[opposite]] of__ that~~
+is, __“play stupid games win stupid prizes.”__
