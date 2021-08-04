@@ -76,3 +76,4 @@ Naval:
 Yeah. And one quote that I like 
 ~~which is __the exact [[opposite]] of__ that~~
 is, __“play stupid games win stupid prizes.”__
+A lot of people spend a lot of their time playing __social games__ like on Twitter where you’re trying to improve your __social [[standing]]__ and you basically win stupid __social prizes__ which are [[worthless]].
