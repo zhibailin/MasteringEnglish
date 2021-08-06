@@ -77,3 +77,9 @@ Yeah. And one quote that I like
 ~~which is __the exact [[opposite]] of__ that~~
 is, __“play stupid games win stupid prizes.”__
 A lot of people spend a lot of their time playing __social games__ like on Twitter where you’re trying to improve your __social [[standing]]__ and you basically win stupid __social prizes__ which are [[worthless]].
+
+Nivi: 
+I guess the last thing that I have from this blog post is the idea that 
+__by [[pursue|pursuing]]__ these kinds of luck especially the last one, basically __everything but__ dumb luck, 
+__by pursuing__ them you [[essentially]] [[run out of]] unluck. 
+So, if you __just__ keep [[stir]]ring the pot and stirring the pot, that [[alone]] you will run out of unluck.
