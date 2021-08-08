@@ -83,3 +83,7 @@ I guess the last thing that I have from this blog post is the idea that
 __by [[pursue|pursuing]]__ these kinds of luck especially the last one, basically __everything but__ dumb luck, 
 __by pursuing__ them you [[essentially]] [[run out of]] unluck. 
 So, if you __just__ keep [[stir]]ring the pot and stirring the pot, that [[alone]] you will run out of unluck.
+
+Naval: 
+Yeah, or it could just __be [[reversion]] to the mean__. 
+So, then you at least [[neutralize]]d luck so that __it’s__ your own talents that __come into play__.
