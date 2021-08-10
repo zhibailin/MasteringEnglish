@@ -16,3 +16,8 @@ __There are many reasons for that__.
 But __the most basic is just that__
 your inputs are very closely [[tie]]d to your outputs. 
 In almost any __salaried job__, [[even]] __at one__ that’s paying a lot per hour like a lawyer, or a doctor, you’re still __putting in__ the hours, and every hour you get paid.
+So, __what that means is__
+when you’re sleeping, you’re not earning. 
+When you’re retired, you’re not earning. 
+When you’re on vacation, you’re not earning. 
+And you can’t earn non-linearly.
