@@ -6,3 +6,9 @@ how you can actually get rich, and __how you can’t__ get rich.
 __The first point was__ about __how you’re not going to__ get rich: 
 “You are not going to get rich renting out your time. 
 You must [[own]] [[equity]], __a piece of the business__ to gain your __financial freedom__.”
+
+Naval: 
+This is probably one of __the absolute most important__ points. 
+People __[[seem]] to think that__ you can create wealth, and make money through work. 
+And __it’s probably not going to__ work. 
+__There are many reasons for that__.
