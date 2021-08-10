@@ -12,3 +12,7 @@ This is probably one of __the absolute most important__ points.
 People __[[seem]] to think that__ you can create wealth, and make money through work. 
 And __it’s probably not going to__ work. 
 __There are many reasons for that__.
+
+But __the most basic is just that__
+your inputs are very closely [[tie]]d to your outputs. 
+In almost any __salaried job__, [[even]] __at one__ that’s paying a lot per hour like a lawyer, or a doctor, you’re still __putting in__ the hours, and every hour you get paid.
