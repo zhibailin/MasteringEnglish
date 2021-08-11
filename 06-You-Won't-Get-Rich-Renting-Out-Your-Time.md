@@ -21,3 +21,9 @@ when you’re sleeping, you’re not earning.
 When you’re retired, you’re not earning. 
 When you’re on vacation, you’re not earning. 
 And you can’t earn non-linearly.
+
+If you __look at__ even doctors who get rich, like really rich, it’s because they __open a business__. They open like __a [[private]] practice__. 
+And that private practice builds a brand, and that brand attracts people. 
+Or they build some kind of __a medical [[device]]__, 
+or a [[procedure]], 
+or a process with an __[[intellectual]] [[property]]__.
