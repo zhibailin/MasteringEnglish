@@ -27,3 +27,6 @@ And that private practice builds a brand, and that brand attracts people.
 Or they build some kind of __a medical [[device]]__, 
 or a [[procedure]], 
 or a process with an __[[intellectual]] [[property]]__.
+
+So, essentially you’re working for somebody else, and that person is taking on the risk, and has the [[accountability]], and the __intellectual property__, and the __brand__. 
+So, they’re just not gonna pay you enough. They’re gonna pay you the [[bare]] minimum that they have to, to get you to do their job. And that can be a high bare minimum, but it’s still not gonna be true wealth __where__ you’re retired.
