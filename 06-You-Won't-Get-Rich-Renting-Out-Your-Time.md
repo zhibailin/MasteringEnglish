@@ -30,3 +30,10 @@ or a process with an __[[intellectual]] [[property]]__.
 
 So, essentially you’re working for somebody else, and that person is taking on the risk, and has the [[accountability]], and the __intellectual property__, and the __brand__. 
 So, they’re just not gonna pay you enough. They’re gonna pay you the [[bare]] minimum that they have to, to get you to do their job. And that can be a high bare minimum, but it’s still not gonna be true wealth __where__ you’re retired.
+
+> Renting out your time means you’re essentially replaceable
+
+And then finally you’re actually just not even creating that much [[original]] for society. 
+Like I said, this tweetstorm __should have been__ called “How to Create __Wealth__.” (__It’s just__ “How to Get Rich” was a more [[catchy]] title.) 
+But you’re not creating new things (Wealth) for society. 
+You’re just doing things [[over and over]].
