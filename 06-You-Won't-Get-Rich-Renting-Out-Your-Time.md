@@ -37,3 +37,6 @@ And then finally you’re actually just not even creating that much [[original]]
 Like I said, this tweetstorm __should have been__ called “How to Create __Wealth__.” (__It’s just__ “How to Get Rich” was a more [[catchy]] title.) 
 But you’re not creating new things (Wealth) for society. 
 You’re just doing things [[over and over]].
+
+And you’re [[essentially]] [[replaceable]] because you’re now doing __a set role__. 
+Most set roles can be taught. If they can be taught like in a school, then eventually you’re gonna be competing with someone who’s got more recent knowledge, who’s been taught, and __is coming in to__ replace you.
