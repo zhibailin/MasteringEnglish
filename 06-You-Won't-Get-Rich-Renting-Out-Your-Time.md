@@ -40,3 +40,8 @@ You’re just doing things [[over and over]].
 
 And you’re [[essentially]] [[replaceable]] because you’re now doing __a set role__. 
 Most set roles can be taught. If they can be taught like in a school, then eventually you’re gonna be competing with someone who’s got more recent knowledge, who’s been taught, and __is coming in to__ replace you.
+
+You’re much more likely to be doing a job that can be eventually replaced by a robot, or by an AI.
+And it doesn’t even have to be [[wholesale]] replaced __over night__. 
+It can be replaced __a little bit at a time__. 
+And that kind of __eats into__ your __wealth creation__, and [[therefore]] your __earning capability__.
