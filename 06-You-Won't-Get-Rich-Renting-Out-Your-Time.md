@@ -45,3 +45,5 @@ You’re much more likely to be doing a job that can be eventually replaced by a
 And it doesn’t even have to be [[wholesale]] replaced __over night__. 
 It can be replaced __a little bit at a time__. 
 And that kind of __eats into__ your __wealth creation__, and [[therefore]] your __earning capability__.
+
+So, fundamentally your __inputs are matched to your outputs__. You are replaceable, and you’re not being creative. I just don’t think that, that is a way that you can truly make money.
