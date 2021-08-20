@@ -47,3 +47,13 @@ It can be replaced __a little bit at a time__.
 And that kind of __eats into__ your __wealth creation__, and [[therefore]] your __earning capability__.
 
 So, fundamentally your __inputs are matched to your outputs__. You are replaceable, and you’re not being creative. I just don’t think that, that is a way that you can truly make money.
+
+> You must own [[equity]] to gain your financial freedom
+
+So everybody who really makes money at some point owns a piece of a product, or a business, or some kind of IP. That can be through __stock options__, so you can be working at a tech company. 
+That’s a fine way to start.
+
+But usually the real wealth is created by starting your own companies, or by even investors. 
+They’re in an investment firm, and they’re buying equity. 
+These are much more the routes to wealth. 
+__It doesn’t come through__ the hours.
