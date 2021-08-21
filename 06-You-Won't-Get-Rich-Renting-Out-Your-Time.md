@@ -22,7 +22,7 @@ When you’re retired, you’re not earning.
 When you’re on vacation, you’re not earning. 
 And you can’t earn non-linearly.
 
-If you __look at__ even doctors who get rich, like really rich, it’s because they __open a business__. They open like __a [[private]] practice__. 
+__If you look at__ even doctors who get rich, like really rich, it’s because they __open a business__. They open like __a [[private]] practice__. 
 And that private practice builds a brand, and that brand attracts people. 
 Or they build some kind of __a medical [[device]]__, 
 or a [[procedure]], 
@@ -57,3 +57,10 @@ But usually the real wealth is created by starting your own companies, or by eve
 They’re in an investment firm, and they’re buying equity. 
 These are much more the routes to wealth. 
 __It doesn’t come through__ the hours.
+
+> You want a career where your inputs don’t match your outputs
+
+You really just want a job, or a career, or a profession where your inputs don’t match your outputs. 
+__If you look at__ modern society, again this is later in the tweetstorm. 
+[[Business]]es that have high creativity and high [[leverage]] tends to be __ones__ where you could do an hour of work, and it can have a huge effect.
+Or you can do 1,000 hours of work, and it can have no effect.
