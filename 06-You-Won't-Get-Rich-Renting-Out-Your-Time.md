@@ -64,3 +64,8 @@ You really just want a job, or a career, or a profession where your inputs don�
 __If you look at__ modern society, again this is later in the tweetstorm. 
 [[Business]]es that have high creativity and high [[leverage]] tends to be __ones__ where you could do an hour of work, and it can have a huge effect.
 Or you can do 1,000 hours of work, and it can have no effect.
+
+For example, look at software engineering. One great engineer can create bitcoin, and create billions of dollars worth of value. 
+And an engineer who is working on the wrong thing, or not quite as good, or just not as creative, or thoughtful, or whatever, can work for an entire a year, and every piece of code they ship ends up not getting used. Customers don’t want it.
+
+That is an example of a [[profession]] where the input and the outputs are highly [[disconnect]]ed. __It’s not based on__ the number of hours that you put in.
