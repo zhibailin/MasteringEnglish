@@ -68,4 +68,10 @@ Or you can do 1,000 hours of work, and it can have no effect.
 For example, look at software engineering. One great engineer can create bitcoin, and create billions of dollars worth of value. 
 And an engineer who is working on the wrong thing, or not quite as good, or just not as creative, or thoughtful, or whatever, can work for an entire a year, and every piece of code they ship ends up not getting used. Customers don’t want it.
 
-That is an example of a [[profession]] where the input and the outputs are highly [[disconnect]]ed. __It’s not based on__ the number of hours that you put in.
+That is an example of a [[profession]] where the input and the outputs are __highly [[disconnect]]ed__. __It’s not based on__ the number of hours that you put in.
+
+[[Whereas]] on the extreme other end, if you’re a [[lumberjack]], even the best lumberjack in the world, 
+assuming you’re not working with tools, so the inputs and outputs are __clearly connected__. 
+You’re just using an [[ax]], or a [[saw]]. 
+You know, the best lumberjack in the world __may be like 3x better than__ one of the worst lumberjacks, right? 
+It’s not gonna be a [[gigantic]] difference.
