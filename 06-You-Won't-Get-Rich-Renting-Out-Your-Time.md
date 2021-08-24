@@ -75,3 +75,12 @@ assuming you’re not working with tools, so the inputs and outputs are __clearl
 You’re just using an [[ax]], or a [[saw]]. 
 You know, the best lumberjack in the world __may be like 3x better than__ one of the worst lumberjacks, right? 
 It’s not gonna be a [[gigantic]] difference.
+
+So, you want to look for professions and careers where the inputs and outputs are highly disconnected. 
+This is another way of saying that you want to look for things that are [[leveraged]]. And by leveraged I don’t mean financial leveraged alone, like Wall Street uses, and that has a bad name. I’m just talking about tools. We’re using tools.
+
+A computer is a tool that software engineers use. If I’m a lumberjack with [[bulldozer]]s, and automatic robot axes, and saws, __I’m gonna be using tools, and have more leverage than someone who is just using his bare hands__, and trying to [[rip]] the trees out by the roots.
+
+Tools and leverage are what create this [[disconnection]] between inputs and outputs. Creativity, so __the higher the creativity [[component]] of a [[profession]], the more likely it is to have [[disconnect]]ed inputs and outputs__.
+
+So, I think that if you’re looking at professions where your inputs and your outputs are highly connected, it’s gonna be very, very, hard to create wealth, and make wealth for yourself in that process.
