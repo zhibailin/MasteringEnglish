@@ -21,4 +21,4 @@ And as that happens, one [[subtle]] problem is
 that you upgrade your lifestyle as you make more and more money. And that upgrading of the lifestyle ups __what you consider to be wealth__, and you stay in this [[wage]] slave [[trap]].~~
 
 So, __I forget who said it, maybe it was__ *Nassim Taleb*. But he said, “The most dangerous things are heroin, and a monthly salary.” Right, because they are highly [[addictive]]. 
-The way you want to get wealthy is you want to be poor, and working, and working, and working.
+__The way you want to get wealthy is__ you want to be poor, and working, and working, and working.
