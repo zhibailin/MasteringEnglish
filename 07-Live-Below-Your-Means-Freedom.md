@@ -22,3 +22,7 @@ that you upgrade your lifestyle as you make more and more money. And that upgrad
 
 So, __I forget who said it, maybe it was__ *Nassim Taleb*. But he said, “The most dangerous things are heroin, and a monthly salary.” Right, because they are highly [[addictive]]. 
 __The way you want to get wealthy is__ you want to be poor, and working, and working, and working.
+
+> Ideally, you’ll make your money in [[discrete]] [[lump]]s
+
+And this is ~~for example~~ __how the tech industry works__. Where you don’t make any money for ten years, and then suddenly at year eleven, you might have a giant payday.
