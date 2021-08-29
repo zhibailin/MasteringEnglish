@@ -26,3 +26,10 @@ __The way you want to get wealthy is__ you want to be poor, and working, and wor
 > Ideally, you’ll make your money in [[discrete]] [[lump]]s
 
 And this is ~~for example~~ __how the tech industry works__. Where you don’t make any money for ten years, and then suddenly at year eleven, you might have a giant payday.
+
+Which is, by the way, one reason why these very high [[marginal tax rates]] for the so-called [[wealthy]] are [[flawed]].
+Because the highest risk-taking, most creative [[profession]]s you [[literally]] lose money for a decade over your life, while you take massive risk, and you bleed, and bleed, and bleed. And then suddenly in year eleven, or year fifteen, you might have one single big payday. 
+But then of course [[Uncle Sam]] [[show up]] and say, “Hey, you know what, you just made a lot money this year. Therefore, you’re rich. Therefore, you’re evil and you’ve got to hand it all over to us.” 
+So, it just destroys those [[kind]]s of creative risk-taking [[profession]]s.
+
+But [[ideally]] you want to make your money in discrete lumps, separated over long periods of time, so that your own lifestyle does not have a chance to adapt quickly, and then you can say, “Okay, now I’m done. Now I’m retired. Now I’m free. I’m still gonna work because you got to do something with your life, but I’m gonna work on only the things that I want, when I want.” And so __you have much more creative expression, and much less (expression) about money__.
