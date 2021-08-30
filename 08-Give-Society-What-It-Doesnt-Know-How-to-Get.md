@@ -13,3 +13,5 @@ But society doesn’t [[yet]] know how to create those things because if it did,
 Almost everything that’s __in your house__, __in your workplace__, and __on the street__ used to be [[technology]] [[at one point in time]]. 
 __There was a time when__ oil was a technology, that made J.D. Rockefeller rich. 
 __There was a time when__ cars were technology, that made Henry Ford rich.
+
+So, technology is just the set of things, ~~as Alan Kay said,~~ that don’t quite work yet [correction: Danny Hillis]. Once something works, it’s no longer technology. So, __society always wants new things__.
