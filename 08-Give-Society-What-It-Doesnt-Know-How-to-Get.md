@@ -25,3 +25,6 @@ And then you have to figure out how to scale it. Because if you just build one o
 Steve Jobs, and his team of course figured out that society would want smartphones. A computer in their pocket that had all the phone capability times 100, and be easy to use. So, they figured out how to build that, and then they figured out how to scale it.
 
 And they figured out how to get one into every __First World citizen’s pocket__, and eventually __every Third World citizen__ too. And so because of that they’re handsomely rewarded, and __Apple is the most valuable company in the world__.
+
+Nivi: __The way I tried to [[put]] it__
+was that the [[entrepreneur]]’s job is to try to bring __the [[high-end]]__ to __the [[mass]] market__.
