@@ -28,3 +28,10 @@ And they figured out how to get one into every __First World citizen’s pocket_
 
 Nivi: __The way I tried to [[put]] it__
 was that the [[entrepreneur]]’s job is to try to bring __the [[high-end]]__ to __the [[mass]] market__.
+
+Naval: It [[start as|starts as]] high end. First it starts as an act of creativity. 
+First you create it __just because you want it__. 
+You want it, and you know how to build it, and you need it. 
+And so you __build it for yourself__. 
+Then you figure out __how to get it to other people__. 
+And then for a little while rich people have it.
