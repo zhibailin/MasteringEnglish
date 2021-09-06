@@ -35,3 +35,14 @@ You want it, and you know how to build it, and you need it.
 And so you __build it for yourself__. 
 Then you figure out __how to get it to other people__. 
 And then for a little while rich people have it.
+
+Like, for example rich people had [[chauffeur]]s, and then they had black [[town car]]s. 
+And then Uber [[came along]], and everyone’s __private driver__ is available to everybody. And now you can even see Uber [[pool]]s that are replacing [[shuttle bus]]es because it’s more convenient. 
+And then you get [[scooter]]s, which are even [[further]] down market of that. 
+So, you’re right. __It’s about distributing what rich people used to have to everybody.__
+
+But the entrepreneur’s job starts [[even]] before that, which is creation. 
+[[Entrepreneurship]] is __essentially__ an act of creating something new from scratch. 
+Predicting that society will want it, 
+and then figuring out how to scale it, 
+and get it to everybody in a [[profitable]] way, in a [[self-sustaining]] way.
