@@ -13,3 +13,8 @@ __It connects everyone to everyone__. So, the internet is an inter-networking to
 
 What that helps you figure out is the internet means you can find your audience for your product, or your talent, and skill 
 __no matter how far away they are__.
+
+For example, Nenad, who is Illacertus, if you look at his videos pre-internet, how would he get the message out there? It would just be … what would he do? He would run around where he lives in his neighborhood showing it to people on a computer, or a screen? Or he would try to get it played at his local movie theater? It was impossible. It only works because he can put it on the internet.
+
+And then how many people in the world are really interested in it? Or even in interested in what we’re talking about are really gonna absorb it, right? 
+It’s gonna be a very small subset of [[humanity]]. __The key is__ being able to reach them.
