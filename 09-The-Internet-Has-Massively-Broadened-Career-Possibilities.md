@@ -18,3 +18,8 @@ For example, Nenad, who is Illacertus, if you look at his videos pre-internet, h
 
 And then how many people in the world are really interested in it? Or even in interested in what we’re talking about are really gonna absorb it, right? 
 It’s gonna be a very small subset of [[humanity]]. __The key is__ being able to reach them.
+
+So, what the internet does is allows any [[niche obsession]], which could be just the [[weirdest]] thing. It could be like people who collect snakes, to like people who like to ride hot air balloons, to people who like to sail around the world by themselves, just one person on a craft, or someone who’s [[obsessed]] with [[miniature cooking]]. Like, there’s this whole Japanese miniature cooking phenomenon. Or there’s a show about a woman who goes in people’s houses, and tidies it up, right?
+
+So, whatever [[niche obsession]] you have, the internet allows you to scale. 
+Now __that’s not to say that__ what you build __will__ be the next Facebook, or reach billions of users, but if you just want to reach 50,000 [[passionate]] people like you, there’s an audience [[out]] there for you.
