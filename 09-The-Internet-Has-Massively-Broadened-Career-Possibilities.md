@@ -23,3 +23,7 @@ So, what the internet does is allows any [[niche obsession]], which could be jus
 
 So, whatever [[niche obsession]] you have, the internet allows you to scale. 
 Now __that’s not to say that__ what you build __will__ be the next Facebook, or reach billions of users, but if you just want to reach 50,000 [[passionate]] people like you, there’s an audience [[out]] there for you.
+
+So the beauty of this is that we have 7 billion human beings on the planet. The [[combinatorics]] of human DNA are incredible. Everyone is completely different. You’ll never meet any two people who are even vaguely similar to each other, that can substitute for each other.
+
+It’s not like you can say, “Well, Nivi, just left my life. So, I can have this other person come in, and he’s just like Nivi. And I get the same feelings, and the same responses, and the same ideas.” No. __There are no substitutes for people. People are completely unique.__
