@@ -27,3 +27,6 @@ Now __that’s not to say that__ what you build __will__ be the next Facebook, o
 So the beauty of this is that we have 7 billion human beings on the planet. The [[combinatorics]] of human DNA are incredible. Everyone is completely different. You’ll never meet any two people who are even vaguely similar to each other, that can substitute for each other.
 
 It’s not like you can say, “Well, Nivi, just left my life. So, I can have this other person come in, and he’s just like Nivi. And I get the same feelings, and the same responses, and the same ideas.” No. __There are no substitutes for people. People are completely unique.__
+
+So, [[given that]] each person has different skillsets, different interests, different obsessions. And it’s ~~that~~ [[diversity]] that becomes a creative [[superpower]]. 
+So, each person can be creatively [[superb]] __at__ their own unique thing.
