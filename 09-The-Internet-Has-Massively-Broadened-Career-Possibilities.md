@@ -30,3 +30,7 @@ It’s not like you can say, “Well, Nivi, just left my life. So, I can have th
 
 So, [[given that]] each person has different skillsets, different interests, different obsessions. And it’s ~~that~~ [[diversity]] that becomes a creative [[superpower]]. 
 So, each person can be creatively [[superb]] __at__ their own unique thing.
+
+But [[before]], that didn’t matter. 
+Because if you were living in a little fishing [[village]] in Italy, like your fishing village didn’t necessarily need your completely unique skill, and you had to [[conform]] to just the few jobs that were available. 
+__But now today__ you can be completely unique.
