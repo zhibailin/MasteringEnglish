@@ -34,3 +34,10 @@ So, each person can be creatively [[superb]] __at__ their own unique thing.
 But [[before]], that didn’t matter. 
 Because if you were living in a little fishing [[village]] in Italy, like your fishing village didn’t necessarily need your completely unique skill, and you had to [[conform]] to just the few jobs that were available. 
 __But now today__ you can be completely unique.
+
+You can go out on the internet, and you can find your audience. And you can build a business, and create a product, and build wealth, and make people happy just uniquely expressing yourself through the internet.
+
+The space of careers has been so [[broaden]]ed. E-sports players, you know, people making millions of dollars playing [[Fortnite]]. People creating videos, and uploading them. YouTube broadcasters. Bloggers, podcasters. 
+Joe Rogan, __I read, true or false, I don’t know, but I read that__ he’s gonna make about $100 million a year on his podcast. And he’s had 2 billion downloads.
+
+Even PewDiePie… there’s a [[hilarious]] tweet that I retweeted the other day. PewDiePie is the number one trusted name in news. This is a kid I think in Sweden, and he’s got three times the distribution of the top [[cable]] news networks. Just on his news channel. It’s not even on his entertainment channel.
