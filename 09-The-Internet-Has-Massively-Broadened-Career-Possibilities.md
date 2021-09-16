@@ -41,3 +41,14 @@ The space of careers has been so [[broaden]]ed. E-sports players, you know, peop
 Joe Rogan, __I read, true or false, I don’t know, but I read that__ he’s gonna make about $100 million a year on his podcast. And he’s had 2 billion downloads.
 
 Even PewDiePie… there’s a [[hilarious]] tweet that I retweeted the other day. PewDiePie is the number one trusted name in news. This is a kid I think in Sweden, and he’s got three times the distribution of the top [[cable]] news networks. Just on his news channel. It’s not even on his entertainment channel.
+
+> Escape competition through authenticity
+
+The internet enables any niche interest, __as long as you’re the best at it, to scale out__. And the great news is because every human is different, everyone is the best at something. Being themselves.
+
+Another tweet ~~I had that is worth kind of weaving in, but didn’t go into this tweetstorm,~~ was a very simple one. I like things when I can compress them down because __they’re easy to remember, and easy to [[hook onto]]__. But that one was, “Escape competition through [[authenticity]].”
+
+When you’re competing with people it’s because you’re copying them. It’s because you’re trying to do the same thing. But every human is different. Don’t copy.
+
+I know we’re __[[mimetic]] creatures__, and René Girard has a whole [[mimesis]] theory. But it’s much easier than that. __Don’t [[imitate]]. Don’t copy.__ 
+Just do your own thing. __No one can compete with you on being you.__ It’s that simple.
