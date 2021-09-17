@@ -52,3 +52,7 @@ When you’re competing with people it’s because you’re copying them. It’s
 
 I know we’re __[[mimetic]] creatures__, and René Girard has a whole [[mimesis]] theory. But it’s much easier than that. __Don’t [[imitate]]. Don’t copy.__ 
 Just do your own thing. __No one can compete with you on being you.__ It’s that simple.
+
+And so __the more__ authentic __you are to who you are__, and what you love to do, __the less__ competition __you’re gonna__ have. 
+So, you can escape competition through authenticity when you realize that no one can compete with you on being you. 
+And normally that would have been __useless advice__ pre-internet. Post-internet you can turn that into a career.
