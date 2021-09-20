@@ -10,3 +10,4 @@ So, you said, “One should __pick an [[industry]]__ where you can play long-ter
 Why?
 
 Naval: Yeah, this is an [[insight]] into what makes [[Silicon Valley]] work, and what makes [[high trust societies]] work. 
+Essentially, all the benefits in life come from compound interests. [[Whether]] it’s in relationships, or making money, or in learning.
