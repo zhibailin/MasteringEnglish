@@ -21,3 +21,5 @@ You have to be able to play a long-term game. And long-term games are good not j
 
 If you look at [[prisoner’s dilemma type games]], __a solution to__ prisoner’s dilemma is [[tit for tat]], which is 
 I’m just going do to you what you did last time to me with some forgiveness in case there was a mistake made. But that only works in an iterated prisoner’s dilemma, in another words if we play a game [[multiple times]].
+
+So, if you’re __in a situation__, like for example you’re in [[Silicon Valley]], where people are doing business with each other, and they know each other, they trust each other. Then they do right by each other because they know __this person will be around for the next game__.
