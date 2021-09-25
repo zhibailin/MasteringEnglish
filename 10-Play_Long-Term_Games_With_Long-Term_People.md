@@ -23,3 +23,7 @@ If you look at [[prisoner’s dilemma type games]], __a solution to__ prisoner�
 I’m just going do to you what you did last time to me with some forgiveness in case there was a mistake made. But that only works in an iterated prisoner’s dilemma, in another words if we play a game [[multiple times]].
 
 So, if you’re __in a situation__, like for example you’re in [[Silicon Valley]], where people are doing business with each other, and they know each other, they trust each other. Then they do right by each other because they know __this person will be around for the next game__.
+
+Now of course __that doesn’t always work__ because you can make so much money in one [[move]] in Silicon Valley, 
+sometimes people [[betray]] each other because they’re just like, “I’m going to get rich enough off this that I don’t care.” 
+So, there can be exceptions to all these [[circumstance]]s.
