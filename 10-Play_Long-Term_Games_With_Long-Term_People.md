@@ -27,3 +27,9 @@ So, if you’re __in a situation__, like for example you’re in [[Silicon Valle
 Now of course __that doesn’t always work__ because you can make so much money in one [[move]] in Silicon Valley, 
 sometimes people [[betray]] each other because they’re just like, “I’m going to get rich enough off this that I don’t care.” 
 So, there can be exceptions to all these [[circumstance]]s.
+
+But essentially __if you want to__ be successful, __you have to__ work with other people.
+And __you have to figure out who can you trust__, 
+and __who can you trust over a long, long period of time, that you can just keep playing the game with them, 
+so that compound interest and high trust will __make it easier to__ play the game, 
+and will let you collect the major rewards, which are usually at the end of the cycle.
