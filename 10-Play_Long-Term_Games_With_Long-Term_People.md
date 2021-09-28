@@ -36,3 +36,7 @@ and will let you collect the major rewards, which are usually at the end of the 
 
 So, for example, [[Warren Buffett]] has done really well as an investor in the U.S. stock market, but the biggest reason he could do that was because the U.S. stock market has been [[stable]], and [[around]], and didn’t get ~~for example~~ [[seized]] by the government during [[a bad administration]]. 
 Or the U.S. didn’t [[plunge into some war]]. [[The underlying platform]] didn’t get destroyed. So, in his case, he was playing a long-term game. And the trust came from the U.S. stock market’s [[stability]].
+
+> When you switch industries, you’re starting over from scratch
+
+In Silicon Valley, __the trust comes from__ the network of people in the small [[geographic area]], that __you figure out [[over time]] who you can work with, and who you can’t__.
