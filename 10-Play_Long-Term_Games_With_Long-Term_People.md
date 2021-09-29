@@ -40,3 +40,7 @@ Or the U.S. didn’t [[plunge into some war]]. [[The underlying platform]] didn�
 > When you switch industries, you’re starting over from scratch
 
 In Silicon Valley, __the trust comes from__ the network of people in the small [[geographic area]], that __you figure out [[over time]] who you can work with, and who you can’t__.
+
+__If you keep switching locations, you keep switching groups…__ let’s say you [[started out]] in the [[woodworking industry]], and you [[built up a network]] there. 
+And you’re working hard, you’re trying to build a product in the woodworking industry. 
+And then suddenly another industry comes along that’s [[adjacent]] but different, but you don’t really know anybody in it, and you want to dive in, and make money there.
