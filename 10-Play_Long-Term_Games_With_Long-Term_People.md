@@ -44,3 +44,7 @@ In Silicon Valley, __the trust comes from__ the network of people in the small [
 __If you keep switching locations, you keep switching groups…__ let’s say you [[started out]] in the [[woodworking industry]], and you [[built up a network]] there. 
 And you’re working hard, you’re trying to build a product in the woodworking industry. 
 And then suddenly another industry comes along that’s [[adjacent]] but different, but you don’t really know anybody in it, and you want to dive in, and make money there.
+
+If you keep [[hop]]ping from industry to … “No, actually I need to open a [[line]] of [[electric car]] stations for electric car [[refuel]]ing.” 
+__That might make sense__. That might be the best opportunity. 
+But every time you reset, every time you [[wander]] out of where you built your network, you’re going to be __starting from scratch__. You’re not going to know who to trust. They’re not going to know to trust you.
