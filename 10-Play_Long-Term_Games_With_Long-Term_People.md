@@ -48,3 +48,6 @@ And then suddenly another industry comes along that’s [[adjacent]] but differe
 If you keep [[hop]]ping from industry to … “No, actually I need to open a [[line]] of [[electric car]] stations for electric car [[refuel]]ing.” 
 __That might make sense__. That might be the best opportunity. 
 But every time you reset, every time you [[wander]] out of where you built your network, you’re going to be __starting from scratch__. You’re not going to know who to trust. They’re not going to know to trust you.
+
+__There are also__ industries in which people are [[transient]] [[by definition]]. They’re always __coming in and going out__. 
+[[Politics]] __is an example__ of that, right? In politics new people are being [[elected]]. You see in politics that when you have a lot of [[old-timers]], like the [[Senate]], people who have been [[around]] for a long time, and they’ve been [[career politicians]].
