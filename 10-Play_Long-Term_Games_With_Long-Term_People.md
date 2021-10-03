@@ -51,3 +51,7 @@ But every time you reset, every time you [[wander]] out of where you built your 
 
 __There are also__ industries in which people are [[transient]] [[by definition]]. They’re always __coming in and going out__. 
 [[Politics]] __is an example__ of that, right? In politics new people are being [[elected]]. You see in politics that when you have a lot of [[old-timers]], like the [[Senate]], people who have been [[around]] for a long time, and they’ve been [[career politicians]].
+
+There’s a lot of [[downside]] to career politicians like [[corruption]]. But an [[upside]] is they actually __get [[deal]]s done__ with each other because they know the other person is going to be in the same position ten years from now, 
+and they’re going to have to __keep dealing with__ them, 
+so they might as well learn how to [[cooperate]].
