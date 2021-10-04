@@ -58,3 +58,6 @@ so they might as well learn how to [[cooperate]].
 
 Whereas every time you get a new incoming [[freshman]] class in [[the House of Representatives]], which [[turns over]] every two years with [[a big wave election]]. 
 __Nothing gets done__ because of a lot fighting. “Because I just got here, I don’t know you, I don’t know if you’re going to be around, __why should I work with you rather than just try to do whatever I think is right?__”
+
+So, it’s important to pick an industry where you can play long-term games, and with long-term people. So, those people have to __signal that__ they’re going to __be around for a long time__. That they’re [[ethical]]. 
+And their __[[ethics]] are visible through__ their actions.
