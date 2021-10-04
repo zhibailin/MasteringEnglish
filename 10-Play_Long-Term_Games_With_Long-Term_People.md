@@ -55,3 +55,6 @@ __There are also__ industries in which people are [[transient]] [[by definition]
 There’s a lot of [[downside]] to career politicians like [[corruption]]. But an [[upside]] is they actually __get [[deal]]s done__ with each other because they know the other person is going to be in the same position ten years from now, 
 and they’re going to have to __keep dealing with__ them, 
 so they might as well learn how to [[cooperate]].
+
+Whereas every time you get a new incoming [[freshman]] class in [[the House of Representatives]], which [[turns over]] every two years with [[a big wave election]]. 
+__Nothing gets done__ because of a lot fighting. “Because I just got here, I don’t know you, I don’t know if you’re going to be around, __why should I work with you rather than just try to do whatever I think is right?__”
