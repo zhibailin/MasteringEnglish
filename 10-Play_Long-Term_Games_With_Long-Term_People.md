@@ -61,3 +61,13 @@ __Nothing gets done__ because of a lot fighting. “Because I just got here, I d
 
 So, it’s important to pick an industry where you can play long-term games, and with long-term people. So, those people have to __signal that__ they’re going to __be around for a long time__. That they’re [[ethical]]. 
 And their __[[ethics]] are visible through__ their actions.
+
+> Long-term players make each other rich
+
+Nivi: 
+- In a long-term game, it seems that everybody is __making each other rich__. 
+- And in a short-term game, it seems like everybody is __making themselves rich__.
+
+Naval: I think that is a [[brilliant]] [[formulation]]. 
+- In a longterm game, it’s positive sum. __We’re all baking the pie together__. We’re trying to make it as big as possible. 
+- And in a short term game, we’re __cutting up the pie__.
