@@ -75,3 +75,7 @@ Naval: I think that is a [[brilliant]] [[formulation]].
 Now this is not to [[excuse]] the [[socialists]], right? The socialists are the people who are not [[involved]] in baking the pie, who show up at the end, and say, “I want a slice, or I want the whole pie.” They show up with the guns.
 
 But I think a good leader doesn’t take credit. A good leader basically tries to inspire people, so the team gets the job done. And then things get divided up according to [[fairness]], and who contributed how much, or as close to it as possible, and took a risk, __as opposed to__ just whoever has the longest knife… the sharpest knife at the end.
+
+> Returns come from compound interest in [[iterated games]]
+
+Nivi: So, these next two tweets are, “Play iterated games. All returns in life, whether in wealth, relationships, or knowledge __come from__ compound interest.”
