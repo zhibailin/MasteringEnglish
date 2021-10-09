@@ -79,3 +79,5 @@ But I think a good leader doesn’t take credit. A good leader basically tries t
 > Returns come from compound interest in [[iterated games]]
 
 Nivi: So, these next two tweets are, “Play iterated games. All returns in life, whether in wealth, relationships, or knowledge __come from__ compound interest.”
+
+Naval: When you have been doing business with somebody, __you’ve been friends with somebody for ten years__, twenty years, thirty years, it just gets better and better because you trust them so easily. __The [[friction]] goes down__, __you can__ do bigger, and bigger things together.
