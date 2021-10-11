@@ -84,3 +84,7 @@ Naval: When you have been doing business with somebody, __you’ve been friends 
 
 __For example, the simplest one__ is getting married to someone, and having kids, and [[raising children]]. That’s compound interest, right? Investing in those relationships. 
 Those relationships [[end up]] being [[invaluable]] compared to more casual relationships.
+
+__It’s true in__ health and fitness. 
+You know, the fitter you are, the easier it is to stay fit. 
+Whereas the more you [[deteriorate]] your body, the harder it is to come back, and __[[claw]] your way back__ to a baseline. It requires [[heroic acts]].
