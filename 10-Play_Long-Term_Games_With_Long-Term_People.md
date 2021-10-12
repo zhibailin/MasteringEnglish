@@ -93,3 +93,5 @@ Nivi: [[Regarding]] compound interest, I think I saw [[retweet]] something [[a w
 ~~Maybe it was from Ed Latimore.~~ [[It went]] something [[along the lines]] of, 
 “Get some [[traction]]. Get [[purchase]], and don’t lose it”. 
 So, the idea was to gain some [[initial traction]], and never [[fall back]], just [[keep ratcheting up]], and up.
+
+Naval: __I don’t remember it exactly.__ But I think that was right. Yes, it was like, “Get traction, and don’t let go.” It was a good one, yes.
