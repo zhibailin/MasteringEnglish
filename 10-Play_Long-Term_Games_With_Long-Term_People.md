@@ -88,3 +88,8 @@ Those relationships [[end up]] being [[invaluable]] compared to more casual rela
 __It’s true in__ health and fitness. 
 You know, the fitter you are, the easier it is to stay fit. 
 Whereas the more you [[deteriorate]] your body, the harder it is to come back, and __[[claw]] your way back__ to a baseline. It requires [[heroic acts]].
+
+Nivi: [[Regarding]] compound interest, I think I saw [[retweet]] something [[a while back]].
+~~Maybe it was from Ed Latimore.~~ [[It went]] something [[along the lines]] of, 
+“Get some [[traction]]. Get [[purchase]], and don’t lose it”. 
+So, the idea was to gain some [[initial traction]], and never [[fall back]], just [[keep ratcheting up]], and up.
