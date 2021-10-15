@@ -11,3 +11,7 @@ Naval: [[In terms of]] picking people to work with, pick ones that have high int
 
 We all know people in our life who are really smart, but can’t get out of bed, or lift a finger. 
 And we also know people who are very high energy, but not that smart. So, __they work hard, but they’re sort of running in the wrong direction__.
+
+And smart is not a [[pejorative]]. 
+__It’s not meant to say__ someone is smart, someone else is stupid.
+__But it’s more that__ everyone is smart at different things. So, depending on what you want to do well, you have to find someone who is smart at that thing.
