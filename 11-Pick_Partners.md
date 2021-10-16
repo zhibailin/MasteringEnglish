@@ -15,3 +15,6 @@ And we also know people who are very high energy, but not that smart. So, __they
 And smart is not a [[pejorative]]. 
 __It’s not meant to say__ someone is smart, someone else is stupid.
 __But it’s more that__ everyone is smart at different things. So, depending on what you want to do well, you have to find someone who is smart at that thing.
+
+And then energy, a lot of times people __are [[unmotivated]] for a specific thing__, but they’re motivated for other things. 
+So, for example, someone might be really unmotivated to go to a job, and sit in an office. But they might be really motivated to go paint, right?
