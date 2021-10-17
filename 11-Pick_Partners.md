@@ -18,3 +18,5 @@ __But it’s more that__ everyone is smart at different things. So, depending on
 
 And then energy, a lot of times people __are [[unmotivated]] for a specific thing__, but they’re motivated for other things. 
 So, for example, someone might be really unmotivated to go to a job, and sit in an office. But they might be really motivated to go paint, right?
+
+Well, in that case they should be a painter. They should be putting art up on the internet. Trying to figure out how to build a career [[out of]] that, rather than wearing a [[collar]] around their neck, and going to a [[dreary]] job.
