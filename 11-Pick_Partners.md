@@ -20,3 +20,8 @@ And then energy, a lot of times people __are [[unmotivated]] for a specific thin
 So, for example, someone might be really unmotivated to go to a job, and sit in an office. But they might be really motivated to go paint, right?
 
 Well, in that case they should be a painter. They should be putting art up on the internet. Trying to figure out how to build a career [[out of]] that, rather than wearing a [[collar]] around their neck, and going to a [[dreary]] job.
+
+And then high integrity is the most important because otherwise if you’ve got the other two, what you have is you have a smart and hard working [[crook]], who’s eventually going to cheat you. So, you have to figure out if the person is high-integrity.
+
+And as we talked about, the way you do that is through signals. And __signals is what they do, not what they say__. 
+It’s all the [[non-verbal stuff]] that they do __when they think nobody is looking__.
