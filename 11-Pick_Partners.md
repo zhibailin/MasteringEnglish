@@ -25,3 +25,8 @@ And then high integrity is the most important because otherwise if you’ve got 
 
 And as we talked about, the way you do that is through signals. And __signals is what they do, not what they say__. 
 It’s all the [[non-verbal stuff]] that they do __when they think nobody is looking__.
+
+> Motivation has to come [[intrinsically]]
+
+Nivi: [[With respect to]] the energy, there was this interesting thing from Sam Altman a while back, __where__ he was talking about [[delegation]], and he was saying, 
+“One of the important things for delegation is, [[delegate to]] people who are actually good at the thing that you want them to do.”
