@@ -30,3 +30,7 @@ It’s all the [[non-verbal stuff]] that they do __when they think nobody is loo
 
 Nivi: [[With respect to]] the energy, there was this interesting thing from Sam Altman a while back, __where__ he was talking about [[delegation]], and he was saying, 
 “One of the important things for delegation is, [[delegate to]] people who are actually good at the thing that you want them to do.”
+
+It’s the most obvious thing, but it seems like…  you want to __partner with__ people who are [[naturally]] going to do the things that you want them to do.
+
+Naval: Yeah. __I almost won’t__ start a company, or hire a person, or work with somebody __if__ I just don’t think __they’re [[into]]__ what I want them to do.
