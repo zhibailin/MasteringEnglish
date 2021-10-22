@@ -34,3 +34,8 @@ Nivi: [[With respect to]] the energy, there was this interesting thing from Sam 
 It’s the most obvious thing, but it seems like…  you want to __partner with__ people who are [[naturally]] going to do the things that you want them to do.
 
 Naval: Yeah. __I almost won’t__ start a company, or hire a person, or work with somebody __if__ I just don’t think __they’re [[into]]__ what I want them to do.
+
+When I was younger, I used to try and [[talk people into]] things. I had this idea that you could [[sell someone into doing something]]. 
+But you can’t. You can’t __keep them motivated__. 
+You can get them inspired [[initially]]. 
+It might work if you’re a king like Henry V, and you’re trying to get them to just [[charge into]] [[battle]], and then they’ll figure it out.
