@@ -39,3 +39,7 @@ When I was younger, I used to try and [[talk people into]] things. I had this id
 But you can’t. You can’t __keep them motivated__. 
 You can get them inspired [[initially]]. 
 It might work if you’re a king like Henry V, and you’re trying to get them to just [[charge into]] [[battle]], and then they’ll figure it out.
+
+But if you’re trying to keep someone motivated for the long-term, that motivation has to come [[intrinsically]]. 
+You can’t just create it, nor can you be the [[crutch]] for them if they don’t have that intrinsic motivation. 
+So, __you have to make sure__ people actually are high-energy, and want to do what you want them to do, and what you want to work with them on.
