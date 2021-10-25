@@ -43,3 +43,12 @@ It might work if you’re a king like Henry V, and you’re trying to get them t
 But if you’re trying to keep someone motivated for the long-term, that motivation has to come [[intrinsically]]. 
 You can’t just create it, nor can you be the [[crutch]] for them if they don’t have that intrinsic motivation. 
 So, __you have to make sure__ people actually are high-energy, and want to do what you want them to do, and what you want to work with them on.
+
+> Integrity is what someone does, despite what they say they do
+
+Reading signals is very, very important. Signals are what people do [[despite]] what they say. 
+So, it’s important to pay attention to [[subtle]] signals. 
+We all know that socially if someone treats a waiter, or waitress in a restaurant really badly, then __it’s only a matter of time__ until they treat you badly.
+
+If somebody [[screws]] over an [[enemy]], and is [[vindictive]] towards them, well __it’s only a matter of time__ before they redefine you from friend to enemy, and you feel their [[wrath]]. 
+So, angry, [[outraged]], vindictive, short-term thinking people are essentially that way in many interactions in real life.
