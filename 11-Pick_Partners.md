@@ -52,3 +52,6 @@ We all know that socially if someone treats a waiter, or waitress in a restauran
 
 If somebody [[screws]] over an [[enemy]], and is [[vindictive]] towards them, well __it’s only a matter of time__ before they redefine you from friend to enemy, and you feel their [[wrath]]. 
 So, angry, [[outraged]], vindictive, short-term thinking people are essentially that way in many interactions in real life.
+
+__People are [[oddly]] consistent.__
+That's one of the things you learn about them. So, you want to find long-term people. You want to find people who seem [[irrationally]] ethical.
