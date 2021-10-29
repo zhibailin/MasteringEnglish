@@ -55,3 +55,5 @@ So, angry, [[outraged]], vindictive, short-term thinking people are essentially 
 
 __People are [[oddly]] consistent.__
 That's one of the things you learn about them. So, you want to find long-term people. You want to find people who seem [[irrationally]] ethical.
+For example, I had a friend of mine whose company I invested in, and the company failed, and he could have [[wiped out]] all of the investors. But he kept putting more and more personal money in. 
+Through three different [[pivots]] he put personal money in until the company finally succeeded. And __in the process, he never wiped out the investors__.
