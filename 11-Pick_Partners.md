@@ -57,3 +57,8 @@ __People are [[oddly]] consistent.__
 That's one of the things you learn about them. So, you want to find long-term people. You want to find people who seem [[irrationally]] ethical.
 For example, I had a friend of mine whose company I invested in, and the company failed, and he could have [[wiped out]] all of the investors. But he kept putting more and more personal money in. 
 Through three different [[pivots]] he put personal money in until the company finally succeeded. And __in the process, he never wiped out the investors__.
+And __I was always grateful to him for that__. 
+I said, “Wow, that’s amazing that __you were so good to__ your investors. You didn’t wipe them out.” 
+And __he got [[offend]]ed by that.__ 
+He said, “I didn’t do it for you. I didn’t do it for my investors. I did it for me. It’s my own [[self-esteem]]. __It’s what I care about.__ That’s how I live my life.” 
+That’s the kind of person you want to work with.
