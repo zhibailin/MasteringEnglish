@@ -62,3 +62,5 @@ I said, “Wow, that’s amazing that __you were so good to__ your investors. Yo
 And __he got [[offend]]ed by that.__ 
 He said, “I didn’t do it for you. I didn’t do it for my investors. I did it for me. It’s my own [[self-esteem]]. __It’s what I care about.__ That’s how I live my life.” 
 That’s the kind of person you want to work with.
+
+Another quote that I like, I have a tweet on this. I think I read this somewhere else, so __I’m not taking credit for this__. But __I kind of modified it a little bit__. Which is that “self-esteem is the reputation that you have with yourself.” You’ll always know.
