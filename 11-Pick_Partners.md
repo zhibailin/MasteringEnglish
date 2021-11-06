@@ -66,3 +66,6 @@ That’s the kind of person you want to work with.
 Another quote that I like, I have a tweet on this. I think I read this somewhere else, so __I’m not taking credit for this__. But __I kind of modified it a little bit__. Which is that “self-esteem is the reputation that you have with yourself.” You’ll always know.
 
 So, good people, [[moral]] people, ethical people, easy to work with people, reliable people, tend to have very high self-esteem because they have very good reputations with themselves, and they understand that.
+
+It’s not ego. Self-esteem and ego are different things. 
+Because ego can be [[undeserved]], but self-esteem at least you feel like you __[[lived up to]] your own internal moral code of ethics__.
