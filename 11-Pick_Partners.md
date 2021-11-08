@@ -69,3 +69,12 @@ So, good people, [[moral]] people, ethical people, easy to work with people, rel
 
 It’s not ego. Self-esteem and ego are different things. 
 Because ego can be [[undeserved]], but self-esteem at least you feel like you __[[lived up to]] your own internal moral code of ethics__.
+
+And so it’s very hard to work with people who end up being low integrity. And it’s hard to figure out who is high integrity and low integrity. Generally, the more someone is saying that they’re moral, ethical, and high integrity, the less likely they are to be that way.
+
+__It’s very much like__ [[status signalling]]. 
+If you [[overtly]] [[bid]] for status, if you overtly talk about being high status, that is a low status move. 
+If you openly talk about how honest, reliable, and trustworthy you are, you’re probably not that honest and trustworthy. 
+That is a [[characteristic]] of [[con]] men.
+
+So, yeah, pick an industry in which you can play long-term games with long-term people.
