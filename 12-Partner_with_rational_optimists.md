@@ -6,3 +6,15 @@ Nivi: Let’s do this last tweet. You said, “Don’t partner with cynics, and 
 
 Naval: Yes. Essentially, to create things, you have to be a rational optimist. __Rational in the sense that__ you have to see the world for what it really is. 
 And yet you have to __be optimistic about__ your own capabilities, and your capability to get things done.
+
+We all know people who are consistently pessimistic, who will [[shoot down]] everything. 
+Everyone in their life has the helpful critical guy, right? 
+He thinks he’s being helpful, but he’s actually being critical, and he’s a [[downer]] on everything.
+
+That person will not only never do anything great in their lives, they’ll prevent other people around them from doing something great. 
+They think their job is to shoot holes in things. 
+And it’s okay to shoot holes in things as long as you come up with a solution.
+
+__There’s also the classic [[military line]], “Either lead, follow, or get out of the way.”__ 
+And __these people want a fourth option__, where they don’t want to lead, they don’t want to follow, but they don’t want to get out of the way. 
+They want to tell you why the thing is not going to work.
