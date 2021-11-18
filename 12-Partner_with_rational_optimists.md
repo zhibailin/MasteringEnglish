@@ -23,3 +23,6 @@ And all the really successful people I know have a very strong __action bias__.
 They just do things. 
 The easiest way to figure out if something is [[viable]] or not is by doing it. 
 At least do the first step, and the second step, and the third, and then decide.
+
+So, __if you want to be__ successful in life, creating wealth, or having good relationships, or being fit, or even being happy, 
+__you need to__ have an action bias __towards__ getting what you want.
