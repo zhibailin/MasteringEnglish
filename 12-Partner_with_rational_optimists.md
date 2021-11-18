@@ -18,3 +18,8 @@ And it’s okay to shoot holes in things as long as you come up with a solution.
 __There’s also the classic [[military line]], “Either lead, follow, or get out of the way.”__ 
 And __these people want a fourth option__, where they don’t want to lead, they don’t want to follow, but they don’t want to get out of the way. 
 They want to tell you why the thing is not going to work.
+
+And all the really successful people I know have a very strong __action bias__. 
+They just do things. 
+The easiest way to figure out if something is [[viable]] or not is by doing it. 
+At least do the first step, and the second step, and the third, and then decide.
