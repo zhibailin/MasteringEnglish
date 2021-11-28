@@ -26,3 +26,9 @@ At least do the first step, and the second step, and the third, and then decide.
 
 So, __if you want to be__ successful in life, creating wealth, or having good relationships, or being fit, or even being happy, 
 __you need to__ have an action bias __towards__ getting what you want.
+
+> Partner with rational optimists
+
+And you have to be optimistic about it. __Not irrationally__. You know, there’s nothing worse than someone who is [[foolhardy]] and chasing something that’s not worth it.
+
+That’s why I say rational optimist. But __you have to be rational__. Know all the [[pitfalls]]. Know the [[downsides]], but still __keep your [[chin]] up__.
