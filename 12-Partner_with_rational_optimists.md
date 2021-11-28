@@ -32,3 +32,6 @@ __you need to__ have an action bias __towards__ getting what you want.
 And you have to be optimistic about it. __Not irrationally__. You know, there’s nothing worse than someone who is [[foolhardy]] and chasing something that’s not worth it.
 
 That’s why I say rational optimist. But __you have to be rational__. Know all the [[pitfalls]]. Know the [[downsides]], but still __keep your [[chin]] up__.
+
+You’ve got one life on this planet. Why not try to build something big? 
+__This is the beauty of Elon Musk__, and why I think he inspires so many people, it’s just because he __takes on__ really, really big [[audacious]] __tasks__. And he provides an example for people to think big.
