@@ -33,5 +33,11 @@ And you have to be optimistic about it. __Not irrationally__. You know, there’
 
 That’s why I say rational optimist. But __you have to be rational__. Know all the [[pitfalls]]. Know the [[downsides]], but still __keep your [[chin]] up__.
 
+> think big
+
 You’ve got one life on this planet. Why not try to build something big? 
 __This is the beauty of Elon Musk__, and why I think he inspires so many people, it’s just because he __takes on__ really, really big [[audacious]] __tasks__. And he provides an example for people to think big.
+
+And it takes a lot of work to build even small things. I don’t think __the corner [[grocery]] store owner__ is working any less hard than Elon Musk, or pouring any less sweat and [[toil]] into it. Maybe even more.
+
+But for whatever reason, education, [[circumstance]], they didn’t get the chance to think as big, so the outcome is not as big. So, it’s just better to think big. 
