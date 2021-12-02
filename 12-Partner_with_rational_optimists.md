@@ -41,3 +41,4 @@ __This is the beauty of Elon Musk__, and why I think he inspires so many people,
 And it takes a lot of work to build even small things. I don’t think __the corner [[grocery]] store owner__ is working any less hard than Elon Musk, or pouring any less sweat and [[toil]] into it. Maybe even more.
 
 But for whatever reason, education, [[circumstance]], they didn’t get the chance to think as big, so the outcome is not as big. So, it’s just better to think big. 
+[[Obviously]], rationally, within your [[means]], stay optimistic.
