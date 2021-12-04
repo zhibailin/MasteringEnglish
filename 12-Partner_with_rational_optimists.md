@@ -42,3 +42,5 @@ And it takes a lot of work to build even small things. I don’t think __the cor
 
 But for whatever reason, education, [[circumstance]], they didn’t get the chance to think as big, so the outcome is not as big. So, it’s just better to think big. 
 [[Obviously]], rationally, within your [[means]], stay optimistic.
+
+The [[cynics]] and the pessimists, what they’re really saying, it’s unfortunate, but they’re saying, “I’ve given up. I don’t think I can do anything. And so the world to me just looks like a world where nobody can do anything. And so __why should ~~not~~ you go__ do something because if you fail, then I’m right, which is great. But __if you succeed, then you just make me look bad__.”
