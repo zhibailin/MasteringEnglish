@@ -44,3 +44,14 @@ But for whatever reason, education, [[circumstance]], they didn’t get the chan
 [[Obviously]], rationally, within your [[means]], stay optimistic.
 
 The [[cynics]] and the pessimists, what they’re really saying, it’s unfortunate, but they’re saying, “I’ve given up. I don’t think I can do anything. And so the world to me just looks like a world where nobody can do anything. And so __why should ~~not~~ you go__ do something because if you fail, then I’m right, which is great. But __if you succeed, then you just make me look bad__.”
+
+> We descended from pessimists
+
+Nivi: Yes, it’s probably better to be an irrational optimist, then it is to be a rational cynic.
+
+Naval: There’s a completely rational [[frame]] on why you should be an optimist. 
+Historically, if you [[go back]] 2,000 years, 5,000 years, 10,000 years, two people are [[wandering through a jungle]], they hear a tiger. 
+- One’s an optimist, and says, “Oh, __it’s not headed our way.__” 
+- The other one says, “I’m a pessimist, __I’m out of here.__” 
+
+And the pessimist runs and survives, and the optimist gets eaten.
