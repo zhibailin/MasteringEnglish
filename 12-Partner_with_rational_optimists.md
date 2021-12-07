@@ -55,3 +55,9 @@ Historically, if you [[go back]] 2,000 years, 5,000 years, 10,000 years, two peo
 - The other one says, “I’m a pessimist, __I’m out of here.__” 
 
 And the pessimist runs and survives, and the optimist gets eaten.
+
+So, __we’re [[descended]] from pessimists__. 
+We’re [[genetically]] [[hardwired]] to be pessimists. 
+But modern society is far, far safer. There are no tigers __wandering around__ the street. 
+__It’s very unlikely that__ you will end up in total ruin, although you should avoid total ruin.
+__Much more likely that__ the upside is [[unlimited]], and the downside is limited. 
