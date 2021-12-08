@@ -61,3 +61,7 @@ We’re [[genetically]] [[hardwired]] to be pessimists.
 But modern society is far, far safer. There are no tigers __wandering around__ the street. 
 __It’s very unlikely that__ you will end up in total ruin, although you should avoid total ruin.
 __Much more likely that__ the upside is [[unlimited]], and the downside is limited. 
+
+So, __adapting for__ modern society means __overriding your pessimism__, and taking slightly irrationally optimistic bets 
+because the upside is unlimited 
+if you start the next SpaceX, or Tesla, or Uber, you can make billions of dollars of value for society, and for yourself, and change the world.
