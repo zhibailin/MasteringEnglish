@@ -65,3 +65,6 @@ __Much more likely that__ the upside is [[unlimited]], and the downside is limit
 So, __adapting for__ modern society means __overriding your pessimism__, and taking slightly irrationally optimistic bets 
 because the upside is unlimited 
 if you start the next SpaceX, or Tesla, or Uber, you can make billions of dollars of value for society, and for yourself, and change the world.
+
+And __if you fail, what’s the big deal?__
+You lost a few million dollars of investor money, and they’ve got plenty more, and __that’s the bet__ they __take on the chances__ that you will succeed.
