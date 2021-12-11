@@ -74,3 +74,5 @@ __It makes sense to__ be optimistic today, especially if you’re educated and l
 Even a Third World country. I actually think the economic opportunities in Third World countries are much larger.
 
 The one thing you have to avoid is __the risk of ruin__. 
+- Ruin means __stay out of [[jail]]__. So, don’t do anything that’s [[illegal]]. It’s never worth it [[to wear an orange jumpsuit]]. 
+- And __stay out of__ total [[catastrophic loss]]. That could mean that you stay out of things that could be [[physically dangerous]], hurt your body.
