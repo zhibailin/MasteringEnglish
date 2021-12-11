@@ -72,3 +72,5 @@ You lost a few million dollars of investor money, and they’ve got plenty more,
 __It made sense to__ be pessimistic in the past. 
 __It makes sense to__ be optimistic today, especially if you’re educated and living in a First World country. 
 Even a Third World country. I actually think the economic opportunities in Third World countries are much larger.
+
+The one thing you have to avoid is __the risk of ruin__. 
