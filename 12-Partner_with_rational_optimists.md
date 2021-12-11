@@ -68,3 +68,7 @@ if you start the next SpaceX, or Tesla, or Uber, you can make billions of dollar
 
 And __if you fail, what’s the big deal?__
 You lost a few million dollars of investor money, and they’ve got plenty more, and __that’s the bet__ they __take on the chances__ that you will succeed.
+
+__It made sense to__ be pessimistic in the past. 
+__It makes sense to__ be optimistic today, especially if you’re educated and living in a First World country. 
+Even a Third World country. I actually think the economic opportunities in Third World countries are much larger.
