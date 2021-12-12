@@ -76,3 +76,6 @@ Even a Third World country. I actually think the economic opportunities in Third
 The one thing you have to avoid is __the risk of ruin__. 
 - Ruin means __stay out of [[jail]]__. So, don’t do anything that’s [[illegal]]. It’s never worth it [[to wear an orange jumpsuit]]. 
 - And __stay out of__ total [[catastrophic loss]]. That could mean that you stay out of things that could be [[physically dangerous]], hurt your body.
+
+You have to watch your health. And stay out of things that can cause you to lose all of your capital, all of your [[savings]]. 
+So, __don’t gamble everything on one go__. But take rationally optimistic bets with big upside.
