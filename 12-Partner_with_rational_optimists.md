@@ -79,3 +79,9 @@ The one thing you have to avoid is __the risk of ruin__.
 
 You have to watch your health. And stay out of things that can cause you to lose all of your capital, all of your [[savings]]. 
 So, __don’t gamble everything on one go__. But take rationally optimistic bets with big upside.
+
+> BOCTAOE
+
+Nivi: 
+I think there __’s__ people that will try and [[build up]] your ideas, and [[build on]] your ideas, __no matter how__ far fetched they might seem. 
+And then __there are people__ who list all of the obvious exceptions, __no matter how__ obvious they are.
