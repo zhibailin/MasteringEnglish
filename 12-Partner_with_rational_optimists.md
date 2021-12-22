@@ -95,3 +95,5 @@ I barely __get exposed to__ that anymore.
 Naval: That’s what Twitter is for. 
 Scott Adams __got so annoyed by__ this that he came up with a phrase, an [[acronym]], which is __“but of course there are obvious exceptions”__, *BOCTAOE*. 
 And he used to [[pin]] that acronym at the end of his articles __for a while__.
+
+But Twitter is [[overrun]] with [[nitpicker]]s.
