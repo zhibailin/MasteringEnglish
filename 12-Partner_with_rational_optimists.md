@@ -97,3 +97,6 @@ Scott Adams __got so annoyed by__ this that he came up with a phrase, an [[acron
 And he used to [[pin]] that acronym at the end of his articles __for a while__.
 
 But Twitter is [[overrun]] with [[nitpicker]]s.
+Whereas exactly __as you were pointing out__, 
+__Silicon Valley has learned that__ the upside is so great that you never [[look down on]] the kid who’s wearing a [[hoodie]] and has coffee on his shoes. 
+And just looks like a [[slob]] because you don’t know if he’s going to be the next Mark Zuckerberg, or the next Reid Hoffman.
