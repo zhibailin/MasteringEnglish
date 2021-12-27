@@ -100,3 +100,6 @@ But Twitter is [[overrun]] with [[nitpicker]]s.
 Whereas exactly __as you were pointing out__, 
 __Silicon Valley has learned that__ the upside is so great that you never [[look down on]] the kid who’s wearing a [[hoodie]] and has coffee on his shoes. 
 And just looks like a [[slob]] because you don’t know if he’s going to be the next Mark Zuckerberg, or the next Reid Hoffman.
+
+So, you’ve got to __treat everybody with respect__. 
+You’ve got to __look up to__ every possibility, and opportunity because the upside is so unlimited, and the downside is so limited in the modern world, especially with __financial assets and instruments__.
