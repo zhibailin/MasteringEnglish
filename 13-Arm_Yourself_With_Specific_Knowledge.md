@@ -10,3 +10,5 @@ Naval: If you want to make money you have to get paid at scale.
 - and just you getting paid __as opposed to__ somebody else getting paid , that’s specific knowledge.
 
 So, specific knowledge __is probably__ the hardest thing to [[get across]] in this whole tweetstorm, and __it’s probably the thing that__ people get the most confused about.
+
+The thing is that __we have this idea that__ everything can be taught, everything can be taught in school. And __it’s not true that__ everything can be taught. 
