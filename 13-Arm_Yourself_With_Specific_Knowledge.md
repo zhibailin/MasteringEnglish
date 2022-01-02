@@ -20,3 +20,8 @@ In fact, the most interesting things cannot be taught. __But everything can be l
   - __Classic example is__ investing, but __it could be__ in anything.
     - It could be in judgment, in running a [[fleet]] of trucks, 
     - it could be judgment in weather forecasting.
+
+So, __specific knowledge is the knowledge that you care about.__ 
+Especially if you’re [[later in life]], let’s say your [[post]] 20, 21, 22, 
+- you almost __don’t get to__ choose which specific knowledge you have. 
+- [[Rather]], you __get to__ look at what you have already built by that point in time, and then you can __build on top of it__.
