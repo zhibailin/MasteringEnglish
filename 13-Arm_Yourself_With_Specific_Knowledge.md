@@ -17,5 +17,6 @@ In fact, the most interesting things cannot be taught. __But everything can be l
 - or it could be through your childhood where you learn soft skills which are very, very hard to teach later on in life, 
 - or it’s something that is [[band new]] so nobody else knows how to do it [[either]], 
 - or it’s true on the __job training__ because __you’re [[pattern]]__ __matching into__ highly complex environments, __building [[judgment]]__ in a specific domain.
-
-__Classic example is__ investing, 
+  - __Classic example is__ investing, but __it could be__ in anything.
+    - It could be in judgment, in running a [[fleet]] of trucks, 
+    - it could be judgment in weather forecasting.
