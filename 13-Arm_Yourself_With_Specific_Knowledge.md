@@ -13,3 +13,7 @@ So, specific knowledge __is probably__ the hardest thing to [[get across]] in th
 
 The thing is that __we have this idea that__ everything can be taught, everything can be taught in school. And __it’s not true that__ everything can be taught. 
 In fact, the most interesting things cannot be taught. __But everything can be learned.__ 
+~~And very often that~~ learning [[either]] comes from __some [[innate]] characteristics in your DNA__, 
+- or it could be through your childhood where you learn soft skills which are very, very hard to teach later on in life, 
+- or it’s something that is [[band new]] so nobody else knows how to do it [[either]], 
+- or it’s true on the __job training__ because __you’re [[pattern]]__ __matching into__ highly complex environments, __building [[judgment]]__ in a specific domain.
