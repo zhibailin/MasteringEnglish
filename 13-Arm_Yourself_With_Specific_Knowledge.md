@@ -31,3 +31,5 @@ Especially if you’re [[later in life]], let’s say your [[post]] 20, 21, 22,
 The first thing to notice about specific knowledge is that you can’t be trained for it. 
 If you can be trained for it, if you can go to a class and learn specific knowledge, then somebody else can be trained for it too, and then we can [[mass-produce]] and [[mass-train]] people. 
 [[Heck]], we can even program computers to do it and eventually we can program robots to [[walk around]] __doing__ it.
+
+So, if __that’s the [[case]]__, then __you’re extremely replaceable__
