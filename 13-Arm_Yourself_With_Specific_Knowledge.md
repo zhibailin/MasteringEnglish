@@ -25,3 +25,9 @@ So, __specific knowledge is the knowledge that you care about.__
 Especially if you’re [[later in life]], let’s say your [[post]] 20, 21, 22, 
 - you almost __don’t get to__ choose which specific knowledge you have. 
 - [[Rather]], you __get to__ look at what you have already built by that point in time, and then you can __build on top of it__.
+
+> Specific knowledge can’t be trained
+
+The first thing to notice about specific knowledge is that you can’t be trained for it. 
+If you can be trained for it, if you can go to a class and learn specific knowledge, then somebody else can be trained for it too, and then we can [[mass-produce]] and [[mass-train]] people. 
+[[Heck]], we can even program computers to do it and eventually we can program robots to [[walk around]] __doing__ it.
