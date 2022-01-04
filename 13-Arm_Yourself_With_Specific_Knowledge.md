@@ -33,3 +33,5 @@ If you can be trained for it, if you can go to a class and learn specific knowle
 [[Heck]], we can even program computers to do it and eventually we can program robots to [[walk around]] __doing__ it.
 
 So, if __that’s the [[case]]__, then __you’re extremely replaceable__
+and all we have to pay you is the minimum [[wage]] that we have to pay you to get you to do it when there are lots of other takers who can be trained to do it. 
+So really, your returns just [[devolve into]] your cost of training plus the return on investment on that training.
