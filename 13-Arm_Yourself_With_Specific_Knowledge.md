@@ -35,3 +35,8 @@ If you can be trained for it, if you can go to a class and learn specific knowle
 So, if __that’s the [[case]]__, then __you’re extremely replaceable__
 and all we have to pay you is the minimum [[wage]] that we have to pay you to get you to do it when there are lots of other takers who can be trained to do it. 
 So really, your returns just [[devolve into]] your cost of training plus the return on investment on that training.
+
+So, you [[really]] want to [[pick up]] specific knowledge, 
+you need your [[schooling]], 
+you need your training to be able to [[capitalize on]] the best specific knowledge, 
+but the part of it ~~that you’re going to get paid for~~ is the specific knowledge.
