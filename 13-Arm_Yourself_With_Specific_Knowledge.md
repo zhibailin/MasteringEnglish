@@ -40,3 +40,8 @@ So, you [[really]] want to [[pick up]] specific knowledge,
 you need your [[schooling]], 
 you need your training to be able to [[capitalize on]] the best specific knowledge, 
 but the part of it ~~that you’re going to get paid for~~ is the specific knowledge.
+
+> Specific knowledge is found by __pursuing your curiosity__
+
+For example, someone who goes and gets a degree in [[psychology]] and then becomes a [[salesperson]]. 
+Well if they __were already__ a [[formidable]] salesperson, a high grade salesmanship to begin with, then the psychology degree is leverage, it arms them and they do much better at sales.
