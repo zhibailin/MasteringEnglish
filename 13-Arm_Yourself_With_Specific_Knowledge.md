@@ -49,3 +49,4 @@ Well if they __were already__ a [[formidable]] salesperson, a high grade salesma
 But if they were always an [[introvert]] never very good at sales and they’re trying to use psychology to learn sales, they’re just not going to get that great at it.
 
 So, specific knowledge is [[found]] much more by pursuing your __innate talents__, your genuine curiosity, and your [[passion]]. 
+It’s not by going to school for [[whatever]] is __the hottest job__, 
