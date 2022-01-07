@@ -45,3 +45,7 @@ but the part of it ~~that you’re going to get paid for~~ is the specific knowl
 
 For example, someone who goes and gets a degree in [[psychology]] and then becomes a [[salesperson]]. 
 Well if they __were already__ a [[formidable]] salesperson, a high grade salesmanship to begin with, then the psychology degree is leverage, it arms them and they do much better at sales.
+
+But if they were always an [[introvert]] never very good at sales and they’re trying to use psychology to learn sales, they’re just not going to get that great at it.
+
+So, specific knowledge is [[found]] much more by pursuing your __innate talents__, your genuine curiosity, and your [[passion]]. 
