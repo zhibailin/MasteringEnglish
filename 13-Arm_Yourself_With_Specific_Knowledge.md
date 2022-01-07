@@ -50,3 +50,4 @@ But if they were always an [[introvert]] never very good at sales and they’re 
 
 So, specific knowledge is [[found]] much more by pursuing your __innate talents__, your genuine curiosity, and your [[passion]]. 
 It’s not by going to school for [[whatever]] is __the hottest job__, 
+it’s not for going into whatever field investors say is the hottest.
