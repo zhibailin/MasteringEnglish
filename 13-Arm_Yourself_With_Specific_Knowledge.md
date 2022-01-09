@@ -53,3 +53,4 @@ It’s not by going to school for [[whatever]] is __the hottest job__,
 it’s not for going into whatever field investors say is the hottest.
 
 Very often specific knowledge __is at__ the edge of knowledge. It’s also stuff that’s just being figured out or is really hard to figure out.
+So, __if__ you’re not 100% [[into]] it __somebody else__ who is 100% into it will [[outperform]] you. 
