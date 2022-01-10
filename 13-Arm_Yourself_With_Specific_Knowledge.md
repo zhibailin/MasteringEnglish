@@ -59,3 +59,7 @@ they’ll outperform you __by a lot__
 because now we’re __operating the domain__ of ideas, compound interest really __applies__ and leverage really applies.
 
 So, if you’re operating with __1,000 [[times]] leverage__ and somebody is right __80% of the time__, and somebody else is right 90% of time, the person who’s right 90% of the time will [[literally]] get paid __hundreds of [[times]] more__ [[by the market]] 
+because of the leverage 
+and because of [[the compounding factors]]
+and being correct. 
+So, you really want to make sure you’re good at it so that genuine curiosity is very important.
