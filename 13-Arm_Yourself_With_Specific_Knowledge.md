@@ -57,3 +57,5 @@ So, __if__ you’re not 100% [[into]] it __somebody else__ who is 100% into it w
 And they won’t just outperform you __by a little bit__, 
 they’ll outperform you __by a lot__ 
 because now we’re __operating the domain__ of ideas, compound interest really __applies__ and leverage really applies.
+
+So, if you’re operating with __1,000 [[times]] leverage__ and somebody is right __80% of the time__, and somebody else is right 90% of time, the person who’s right 90% of the time will [[literally]] get paid __hundreds of [[times]] more__ [[by the market]] 
