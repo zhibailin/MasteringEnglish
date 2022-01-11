@@ -63,3 +63,8 @@ because of the leverage
 and because of [[the compounding factors]]
 and being correct. 
 So, you really want to make sure you’re good at it so that genuine curiosity is very important.
+
+> Building specific knowledge will feel like play to you
+
+So, very often, it’s not something you sit down and then you [[reason]] about, it’s more found by [[observation]]. 
+You almost have to __look back on your own life__ and see what you’re actually good at.
