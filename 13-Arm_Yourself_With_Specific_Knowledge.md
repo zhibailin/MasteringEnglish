@@ -68,3 +68,5 @@ So, you really want to make sure you’re good at it so that genuine curiosity i
 
 So, very often, it’s not something you sit down and then you [[reason]] about, it’s more found by [[observation]]. 
 You almost have to __look back on your own life__ and see what you’re actually good at.
+
+For example, I wanted to be a scientist and that is where a lot of my [[moral hierarchy]] comes from. 
