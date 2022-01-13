@@ -70,3 +70,4 @@ So, very often, it’s not something you sit down and then you [[reason]] about,
 You almost have to __look back on your own life__ and see what you’re actually good at.
 
 For example, I wanted to be a scientist and that is where a lot of my [[moral hierarchy]] comes from. 
+I view scientists sort of __at the top of the production chain__ for [[humanity]].
