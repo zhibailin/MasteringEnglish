@@ -71,3 +71,6 @@ You almost have to __look back on your own life__ and see what you’re actually
 
 For example, I wanted to be a scientist and that is where a lot of my [[moral hierarchy]] comes from. 
 I view scientists sort of __at the top of the production chain__ for [[humanity]].
+And the group of scientists who have __made real breakthroughs and contributions__ that probably added more to human society, I think, than any single other class of human beings.
+__Not to take away anything from art or politics or engineering or business__, 
+but without the science we’d still be [[scrambling]] in the [[dirt]], fighting with sticks and trying to __start fires__.
