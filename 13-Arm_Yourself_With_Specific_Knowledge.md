@@ -74,3 +74,7 @@ I view scientists sort of __at the top of the production chain__ for [[humanity]
 And the group of scientists who have __made real breakthroughs and contributions__ that probably added more to human society, I think, than any single other class of human beings.
 __Not to take away anything from art or politics or engineering or business__, 
 but without the science we’d still be [[scrambling]] in the [[dirt]], fighting with sticks and trying to __start fires__.
+
+My whole [[value system]] was built [[around]] scientists and I wanted to be a great scientist. 
+But __when I actually look back at what I was uniquely good at__ and __what I ended up spending my time doing__, 
+__it was more [[around]]__ making money, [[tinker]]ing with technology, and selling people on things, explaining things, talking to people.
