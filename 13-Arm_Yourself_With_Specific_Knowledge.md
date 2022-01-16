@@ -78,3 +78,9 @@ but without the science we’d still be [[scrambling]] in the [[dirt]], fighting
 My whole [[value system]] was built [[around]] scientists and I wanted to be a great scientist. 
 But __when I actually look back at what I was uniquely good at__ and __what I ended up spending my time doing__, 
 __it was more [[around]]__ making money, [[tinker]]ing with technology, and selling people on things, explaining things, talking to people.
+- So, I have some sales skills, which is __a form of__ specific knowledge that I have. 
+- I have some analytical skills around how to make money. 
+- And I have this ability to __[[absorb]] data__, [[obsess]] about it, and break it down and that is a specific skill that I have. 
+- __I also just love tinkering with technology.__ 
+
+__And all of this stuff feels like play to me, but it looks like work to others.__
