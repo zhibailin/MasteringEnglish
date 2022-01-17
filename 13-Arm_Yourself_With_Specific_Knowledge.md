@@ -84,3 +84,8 @@ __it was more [[around]]__ making money, [[tinker]]ing with technology, and sell
 - __I also just love tinkering with technology.__ 
 
 __And all of this stuff feels like play to me, but it looks like work to others.__
+So, there are other people to whom these things would be hard and they say like, 
+“Well, how do I get good at being [[pithy]] and selling ideas?” 
+Well, if you’re not already good at it or if you’re not really into it, 
+__maybe it’s not your thing, focus on the thing that you are really into.__
+
