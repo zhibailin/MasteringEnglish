@@ -90,3 +90,4 @@ Well, if you’re not already good at it or if you’re not really into it,
 __maybe it’s not your thing, focus on the thing that you are really into.__
 
 This is [[ironic]], but the first person to actually point out my real specific knowledge was my mother. 
+She did it __as an aside__, talking from the kitchen and she said it __when I was like 15 or 16 years old__. 
