@@ -92,3 +92,5 @@ __maybe it’s not your thing, focus on the thing that you are really into.__
 This is [[ironic]], but the first person to actually point out my real specific knowledge was my mother. 
 She did it __as an aside__, talking from the kitchen and she said it __when I was like 15 or 16 years old__. 
 I was telling a friend of mine that I want to be an [[astrophysicist]] and she said, “No, you’re going to __go into business.__”
+__I was like__, “What, my mom’s telling me I’m going to be in business. I’m going to be an astrophysicist. __Mom doesn’t know she’s talking about.”__
+But mom __knew exactly what she was talking about.__
