@@ -94,3 +94,7 @@ She did it __as an aside__, talking from the kitchen and she said it __when I wa
 I was telling a friend of mine that I want to be an [[astrophysicist]] and she said, “No, you’re going to __go into business.__”
 __I was like__, “What, my mom’s telling me I’m going to be in business. I’m going to be an astrophysicist. __Mom doesn’t know she’s talking about.”__
 But mom __knew exactly what she was talking about.__
+
+She’d already observed that __every time we walk down the street__, I would [[critique]] the local pizza parlor __on__ 
+why they were selling their slices a certain way with certain [[toppings]] 
+and why their __process of ordering__ was this way when it should have been that way.
