@@ -98,3 +98,6 @@ But mom __knew exactly what she was talking about.__
 She’d already observed that __every time we walk down the street__, I would [[critique]] the local pizza parlor __on__ 
 why they were selling their slices a certain way with certain [[toppings]] 
 and why their __process of ordering__ was this way when it should have been that way.
+So, she knew that I had more of a business curious mind, 
+but then my obsession with science combined to create technology and technology businesses __where I found myself.__
+
