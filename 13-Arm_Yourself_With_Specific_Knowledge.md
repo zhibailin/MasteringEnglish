@@ -100,4 +100,5 @@ why they were selling their slices a certain way with certain [[toppings]]
 and why their __process of ordering__ was this way when it should have been that way.
 So, she knew that I had more of a business curious mind, 
 but then my obsession with science combined to create technology and technology businesses __where I found myself.__
+So, very often, your specific knowledge is observ**ed** and often observ**ed** by other people who know you well and [[reveal]]**ed** in situations rather than something that you come up with.
 
