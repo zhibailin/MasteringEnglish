@@ -102,3 +102,8 @@ So, she knew that I had more of a business curious mind,
 but then my obsession with science combined to create technology and technology businesses __where I found myself.__
 So, very often, your specific knowledge is observ**ed** and often observ**ed** by other people who know you well and [[reveal]]**ed** in situations rather than something that you come up with.
 
+## Specific Knowledge Is Highly Creative or Technical
+
+> Specific knowledge can be taught through [[apprenticeships]]
+
+Naval: __To the extent that__ specific knowledge is taught, it’s on the job. It’s through apprenticeships. 
