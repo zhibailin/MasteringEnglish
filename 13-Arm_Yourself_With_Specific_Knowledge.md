@@ -107,3 +107,6 @@ So, very often, your specific knowledge is observ**ed** and often observ**ed** b
 > Specific knowledge can be taught through [[apprenticeships]]
 
 Naval: __To the extent that__ specific knowledge is taught, it’s on the job. It’s through apprenticeships. 
+And that’s why the best businesses, the best careers are the apprenticeship or self-taught careers, because those are things society still has not figured out how to train and automate yet.
+
+The __classic line__ here is that Warren Buffett went to Benjamin Graham when he __got out of school__. 
