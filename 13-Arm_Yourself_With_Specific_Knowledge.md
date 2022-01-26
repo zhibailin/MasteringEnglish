@@ -110,3 +110,5 @@ Naval: __To the extent that__ specific knowledge is taught, it’s on the job. I
 And that’s why the best businesses, the best careers are the apprenticeship or self-taught careers, because those are things society still has not figured out how to train and automate yet.
 
 The __classic line__ here is that Warren Buffett went to Benjamin Graham when he __got out of school__. 
+Benjamin Graham was the author of the *Intelligent Investor* and sort of [[modernized]] or created __value investing__ as a [[discipline]]. 
+And Warren Buffett went to Benjamin Graham and offered to work for him for free. 
