@@ -112,3 +112,6 @@ And that’s why the best businesses, the best careers are the apprenticeship or
 The __classic line__ here is that Warren Buffett went to Benjamin Graham when he __got out of school__. 
 Benjamin Graham was the author of the *Intelligent Investor* and sort of [[modernized]] or created __value investing__ as a [[discipline]]. 
 And Warren Buffett went to Benjamin Graham and offered to work for him for free. 
+And Graham said, “Actually, you’re [[overpriced]], free is overpriced.” 
+And Graham was absolutely right. 
+When it comes to a very valuable apprenticeship like the type that Graham was going to give Buffet, Buffet should have been paying him a lot of money. 
