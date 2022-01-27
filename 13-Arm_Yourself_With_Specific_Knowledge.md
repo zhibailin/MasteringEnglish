@@ -115,3 +115,4 @@ And Warren Buffett went to Benjamin Graham and offered to work for him for free.
 And Graham said, “Actually, you’re [[overpriced]], free is overpriced.” 
 And Graham was absolutely right. 
 When it comes to a very valuable apprenticeship like the type that Graham was going to give Buffet, Buffet should have been paying him a lot of money. 
+That [[right there]] tells you that those are skills worth having.
