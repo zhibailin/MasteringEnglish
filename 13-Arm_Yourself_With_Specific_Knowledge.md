@@ -116,3 +116,8 @@ And Graham said, “Actually, you’re [[overpriced]], free is overpriced.”
 And Graham was absolutely right. 
 When it comes to a very valuable apprenticeship like the type that Graham was going to give Buffet, Buffet should have been paying him a lot of money. 
 That [[right there]] tells you that those are skills worth having.
+
+> Specific knowledge is often highly creative or technical
+
+Specific knowledge also tends to be technical and creative. 
+It’s __on the [[bleeding edge]] of__ technology, on the [[bleeding edge]] of art, on the [[bleeding edge]] of communication.
