@@ -121,3 +121,4 @@ That [[right there]] tells you that those are skills worth having.
 
 Specific knowledge also tends to be technical and creative. 
 It’s __on the [[bleeding edge]] of__ technology, on the [[bleeding edge]] of art, on the [[bleeding edge]] of communication.
+Even today, for example, there are probably [[meme lords]] out there on the Internet who can create incredible memes that will __spread the idea to millions of people__. 
