@@ -83,7 +83,7 @@ So, __don’t gamble everything on one go__. But take rationally optimistic bets
 > BOCTAOE
 
 Nivi: 
-I think there __’s__ people that will try and [[build up]] your ideas, and [[build on]] your ideas, __no matter how__ far fetched they might seem. 
+I think there __’s__ people that will try and [[build up]] your ideas, and [[build on]] your ideas, no matter how far-fetched they might seem. 
 And then __there are people__ who list all of the obvious exceptions, __no matter how__ obvious they are.
 
 And fortunately in the startup world, I don’t even really __get exposed to__ the people that are giving you 
