@@ -125,3 +125,5 @@ Even today, for example, there are probably [[meme lords]] out there on the Inte
 Or are very [[persuasive]] – Scott Adams __is a good example of this__. He is [[essentially]] becoming one of the most credible people in the world by making accurate predictions through [[persuasive]] arguments and videos.
 
 And that is specific knowledge that he __has built up over the years__ because he __got obsessed with__ [[hypnosis]] when he was young, he learned how to communicate through cartooning, he [[embraced]] Periscope early, so he’s been practicing lots of conversation, he’s read all the books on the topic, he’s employed it in his everyday life. If you look at his girlfriend, she’s this beautiful young Instagram model.
+
+That is an example of someone who has built up a specific knowledge [[over the course of]] his career. It’s highly creative, it has elements of being technical in it, and it’s something that is never going to be automated.
