@@ -127,3 +127,6 @@ Or are very [[persuasive]] – Scott Adams __is a good example of this__. He is 
 And that is specific knowledge that he __has built up over the years__ because he __got obsessed with__ [[hypnosis]] when he was young, he learned how to communicate through cartooning, he [[embraced]] Periscope early, so he’s been practicing lots of conversation, he’s read all the books on the topic, he’s employed it in his everyday life. If you look at his girlfriend, she’s this beautiful young Instagram model.
 
 That is an example of someone who has built up a specific knowledge [[over the course of]] his career. It’s highly creative, it has elements of being technical in it, and it’s something that is never going to be automated.
+
+No one’s going to take that away from him, because he’s also [[accountable]] __under one brand as Scott Adams__, and he’s operating with the leverage of media with Periscope and drawing Dilbert cartoons and writing books. 
+__He has massive leverage on top of that brand__ and he can build wealth out of it if he wanted to build additional wealth beyond what he already has.
