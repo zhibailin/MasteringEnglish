@@ -130,3 +130,10 @@ That is an example of someone who has built up a specific knowledge [[over the c
 
 No one’s going to take that away from him, because he’s also [[accountable]] __under one brand as Scott Adams__, and he’s operating with the leverage of media with Periscope and drawing Dilbert cartoons and writing books. 
 __He has massive leverage on top of that brand__ and he can build wealth out of it if he wanted to build additional wealth beyond what he already has.
+
+> Specific knowledge is specific to the individual and situation
+
+Nivi: Should we be calling it unique knowledge or does specific knowledge [[somehow]] make more sense for it?
+
+Naval: ~~You know, I came up with this framework when I was really young. We’re talking decades and decades. It’s now probably over 30 years old. So, at the time specific knowledge stuck with me so that is how I think about it.~~
+The reason I didn’t try and change it is because __every other term__ that I found for it was [[overloaded]] in a different way. At least specific knowledge isn’t that used. I can kind of [[rebrand]] it.
