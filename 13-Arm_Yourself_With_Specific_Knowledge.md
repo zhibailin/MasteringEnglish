@@ -139,3 +139,7 @@ Naval: ~~You know, I came up with this framework when I was really young. We’r
 The reason I didn’t try and change it is because __every other term__ that I found for it was [[overloaded]] in a different way. At least specific knowledge isn’t that used. I can kind of [[rebrand]] it.
 
 The problem with unique knowledge is, yeah, maybe it’s unique but if I learn it from somebody else it’s no longer unique, then we both know it. So, __it’s not so much that__ it is unique, __it’s that__ it is highly specific to the situation, it’s specific to the individual, it’s specific to the problem, and it can only be built as part of a larger obsession, interest, and time spent in that domain.
+
+__It can’t just be__ read straight out of a single book, 
+__nor can it be__ taught in a single course, 
+__nor can it be__ programmed into a single algorithm.
