@@ -143,3 +143,8 @@ The problem with unique knowledge is, yeah, maybe it’s unique but if I learn i
 __It can’t just be__ read straight out of a single book, 
 __nor can it be__ taught in a single course, 
 __nor can it be__ programmed into a single algorithm.
+
+> You can’t be too [[deliberate]] about [[assembling]] specific knowledge
+
+Nivi: __Speaking of__ Scott Adams, he’s got a blog post on how to build your career by __getting in__~~, say,~~ the top 25 percentile at three or more things. 
+And by doing that, you become the only person in the world who can do those three things in the 25th percentile.
