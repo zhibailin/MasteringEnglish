@@ -152,3 +152,4 @@ And by doing that, you become the only person in the world who can do those thre
 So, instead of trying to be the best at one thing, you just try to be very, very good at three or more things. Is that a way of building specific knowledge?
 
 Naval: I actually think __the best way is__ just to **follow your own obsession**.
+And somewhere in the back of your mind, you can realize that, actually, this obsession I like and I’ll __keep an eye out for__ the commercial aspects of it.
