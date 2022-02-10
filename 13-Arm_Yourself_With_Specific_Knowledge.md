@@ -153,3 +153,4 @@ So, instead of trying to be the best at one thing, you just try to be very, very
 
 Naval: I actually think __the best way is__ just to **follow your own obsession**.
 And somewhere in the back of your mind, you can realize that, actually, this obsession I like and I’ll __keep an eye out for__ the commercial aspects of it.
+But I think if you go around trying to build it a little too [[deliberately]], if you become too **goal-oriented on the money**, then you won’t pick the right thing. You won’t actually pick the thing that you love to do, so you won’t __go deep enough into it__.
