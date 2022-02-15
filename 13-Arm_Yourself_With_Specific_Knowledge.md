@@ -165,3 +165,6 @@ Scott Adams’ observation is a good one, [[predicated]] on statistics.
 
 I think it’s a very [[pragmatic]] approach. But I think it’s important that one not start assembling things too deliberately because you do want to pick things where you are a natural. __Everyone is a natural at something.__
 We’re all familiar with that phrase, __a natural__. “Oh, this person is __a natural at__ meeting men or women, this person is __a natural [[socialite]]__, this person is __a natural programmer__, this person is __a natural reader__.” So, whatever you are a natural at, you want to [[double down on]] that.
+
+And then there are probably multiple things you’re natural at because [[personalities]] and humans are very complex. 
+So, we want to be able to take the things that you are natural at and combine them so that you automatically, just __through sheer interest and enjoyment__, [[end up]] top 25% or top 10% or top 5% at a number of things.
