@@ -9,3 +9,6 @@ __It has many, many definitions__.
 But in every industry, there is a definition of the builder. 
 In our tech industry it’s the CTO, it’s the programmer, it’s the software engineer, hardware engineer. 
 But even in __the [[laundry]] business__, it could be the person who’s building the laundry service, who is making the trains run on time, who’s making sure all the clothes end up in the right place at the right time, and so on.
+
+The other side of it is sales. Again, selling has a very broad definition. 
+__Selling doesn’t necessarily just mean selling individual customers__, but it can mean marketing, it can mean communicating, it can mean recruiting, it can mean raising money, it can mean inspiring people, it could mean doing PR. It’s a broad [[umbrella]] category.
