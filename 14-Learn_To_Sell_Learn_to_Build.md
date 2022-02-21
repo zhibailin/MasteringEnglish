@@ -12,3 +12,8 @@ But even in __the [[laundry]] business__, it could be the person who’s buildin
 
 The other side of it is sales. Again, selling has a very broad definition. 
 __Selling doesn’t necessarily just mean selling individual customers__, but it can mean marketing, it can mean communicating, it can mean recruiting, it can mean raising money, it can mean inspiring people, it could mean doing PR. It’s a broad [[umbrella]] category.
+
+> The Silicon Valley model is a builder and seller
+
+So, generally, the Silicon Valley startup model tends to work best. 
+It’s not the only way, but it is probably the most common way, when you have two founders, one of whom __is world class at__ selling, and one of whom is world class at building.
