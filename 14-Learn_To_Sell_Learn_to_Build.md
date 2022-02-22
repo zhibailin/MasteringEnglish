@@ -17,3 +17,9 @@ __Selling doesn’t necessarily just mean selling individual customers__, but it
 
 So, generally, the Silicon Valley startup model tends to work best. 
 It’s not the only way, but it is probably the most common way, when you have two founders, one of whom __is world class at__ selling, and one of whom is world class at building.
+
+Examples are, of course, Steve Jobs and Steve Wozniak with Apple, Gates and Allen probably had similar responsibilities early on with Microsoft, Larry and Sergey probably broke down along those lines, although it’s a little different there because that was a very technical product delivered to end users through a simple interface.
+
+But generally, you will see this pattern repeated [[over and over]]. 
+There’s a builder and there’s a seller. There’s a CEO and CTO [[combo]]. __And [[venture]] and technology investors are almost trained to look for this combo whenever possible.__ 
+__It’s the magic combination.__
