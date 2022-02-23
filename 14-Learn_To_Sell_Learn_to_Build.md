@@ -23,3 +23,7 @@ Examples are, of course, Steve Jobs and Steve Wozniak with Apple, Gates and Alle
 But generally, you will see this pattern repeated [[over and over]]. 
 There’s a builder and there’s a seller. There’s a CEO and CTO [[combo]]. __And [[venture]] and technology investors are almost trained to look for this combo whenever possible.__ 
 __It’s the magic combination.__
+
+> If you can do both you will be unstoppable
+
+[[The ultimate]] is __when one individual can do both__. That’s when you get true superpowers. That’s when you get people who can create entire industries.
