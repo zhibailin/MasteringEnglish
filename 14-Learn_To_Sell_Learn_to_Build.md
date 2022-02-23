@@ -29,3 +29,4 @@ __It’s the magic combination.__
 [[The ultimate]] is __when one individual can do both__. That’s when you get true superpowers. That’s when you get people who can create entire industries.
 
 __The living example__ is Elon Musk. 
+He __may not necessarily be__ building the rockets himself, but he understands [[enough]] that he actually makes technical contributions. 
