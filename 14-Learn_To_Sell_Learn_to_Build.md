@@ -27,3 +27,5 @@ __It’s the magic combination.__
 > If you can do both you will be unstoppable
 
 [[The ultimate]] is __when one individual can do both__. That’s when you get true superpowers. That’s when you get people who can create entire industries.
+
+__The living example__ is Elon Musk. 
