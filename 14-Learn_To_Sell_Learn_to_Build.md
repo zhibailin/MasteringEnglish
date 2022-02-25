@@ -30,3 +30,5 @@ __It’s the magic combination.__
 
 __The living example__ is Elon Musk. 
 He __may not necessarily be__ building the rockets himself, but he understands [[enough]] that he actually makes technical contributions. 
+He understands the technology well enough that no one’s going to [[snow]] him on it, and he’s not running around __making claims that__ he doesn’t think he can’t eventually deliver. 
+He may __be optimistic on__ the timelines but he thinks this is within [[reasonableness]] for delivery.
