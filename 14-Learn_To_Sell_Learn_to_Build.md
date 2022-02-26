@@ -34,3 +34,6 @@ He understands the technology well enough that no one’s going to [[snow]] him 
 He may __be optimistic on__ the timelines but he thinks this is within [[reasonableness]] for delivery.
 
 Even Steve Jobs developed enough product skills and __was involved enough in__ the product that he also operated in both of these domains. Larry Ellison started as a programmer and I think wrote the first version of Oracle, or __was actually heavily involved in__ it.
+
+Marc Andreessen __was also in this domain__. He __may not have had enough confidence in__ his sales skills, but he was the programmer who wrote Netscape Navigator, or __a big chunk of__ it. 
+So, I think the real [[giant]]s in any field are the people who can both build and sell.
