@@ -37,3 +37,7 @@ Even Steve Jobs developed enough product skills and __was involved enough in__ t
 
 Marc Andreessen __was also in this domain__. He __may not have had enough confidence in__ his sales skills, but he was the programmer who wrote Netscape Navigator, or __a big chunk of__ it. 
 So, I think the real [[giant]]s in any field are the people who can both build and sell.
+
+> I’d rather teach an engineer marketing than a marketer engineering
+
+And usually the building is a thing that a sales person can’t pick up later in life. __It requires too much [[focused time]].__ 
