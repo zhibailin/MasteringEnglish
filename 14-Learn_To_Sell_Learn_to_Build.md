@@ -41,3 +41,4 @@ So, I think the real [[giant]]s in any field are the people who can both build a
 > I’d rather teach an engineer marketing than a marketer engineering
 
 And usually the building is a thing that a sales person can’t pick up later in life. __It requires too much [[focused time]].__ 
+But a builder can pick up selling a little bit later, especially if they were already [[innately]] [[wired]] to be a good [[communicator]].
