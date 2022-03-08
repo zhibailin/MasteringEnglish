@@ -43,3 +43,6 @@ So, I think the real [[giant]]s in any field are the people who can both build a
 And usually the building is a thing that a sales person can’t pick up later in life. __It requires too much [[focused time]].__ 
 But a builder can pick up selling a little bit later, especially if they were already [[innately]] [[wired]] to be a good [[communicator]].
 Bill Gates famously [[paraphrases]] this as, “I’d rather __teach__ an engineer marketing, than a marketer engineering.”
+
+I think if you [[start out]] with a building [[mentality]] and you have building skills and it’s still early enough in your life, 
+or you have enough [[focused time]] that you think you can learn selling, and you have some natural characteristics or you’re a good salesperson, then you can [[double down]] on those.
