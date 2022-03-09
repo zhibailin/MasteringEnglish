@@ -46,3 +46,5 @@ Bill Gates famously [[paraphrases]] this as, “I’d rather __teach__ an engine
 
 I think if you [[start out]] with a building [[mentality]] and you have building skills and it’s still early enough in your life, 
 or you have enough [[focused time]] that you think you can learn selling, and you have some natural characteristics or you’re a good salesperson, then you can [[double down]] on those.
+
+Now, your sales skills could be in a __different than__ traditional domain. For example, let’s say you’re a really good engineer and then people are saying, well, now you need to be good at sales, well, you may not be good at [[hand-to-hand]] sales, but you may be a really good writer.
