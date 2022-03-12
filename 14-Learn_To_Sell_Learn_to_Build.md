@@ -48,3 +48,5 @@ I think if you [[start out]] with a building [[mentality]] and you have building
 or you have enough [[focused time]] that you think you can learn selling, and you have some natural characteristics or you’re a good salesperson, then you can [[double down]] on those.
 
 Now, your sales skills could be in a __different than__ traditional domain. For example, let’s say you’re a really good engineer and then people are saying, well, now you need to be good at sales, well, you may not be good at [[hand-to-hand]] sales, but you may be a really good writer.
+
+And writing is a skill that can be learned much more easily than, say, [[in-person selling]], and so you may just [[cultivate]] writing skills until you become __a good online communicator__ and __then use that for your sales__.
