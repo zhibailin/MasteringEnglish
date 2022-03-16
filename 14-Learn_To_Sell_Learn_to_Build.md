@@ -50,3 +50,6 @@ or you have enough [[focused time]] that you think you can learn selling, and yo
 Now, your sales skills could be in a __different than__ traditional domain. For example, let’s say you’re a really good engineer and then people are saying, well, now you need to be good at sales, well, you may not be good at [[hand-to-hand]] sales, but you may be a really good writer.
 
 And writing is a skill that can be learned much more easily than, say, [[in-person selling]], and so you may just [[cultivate]] writing skills until you become __a good online communicator__ and __then use that for your sales__.
+
+On the other hand, it could just be that you’re a good builder and you’re bad at writing and __you don’t like communicating to mass audiences__ 
+but you’re good [[one-on-one]], so then you might use your sales skills for __recruiting or for [[fundraising]]__, which are more one-on-one kinds of [[endeavors]].
