@@ -53,3 +53,6 @@ And writing is a skill that can be learned much more easily than, say, [[in-pers
 
 On the other hand, it could just be that you’re a good builder and you’re bad at writing and __you don’t like communicating to mass audiences__ 
 but you’re good [[one-on-one]], so then you might use your sales skills for __recruiting or for [[fundraising]]__, which are more one-on-one kinds of [[endeavors]].
+
+__This is pointing out that__ if you’re at the intersection of these two, don’t [[despair]] because __you’re not going to be__ the best technologist and __you’re not going to be__ the best salesperson, 
+but in a weird way, that combination, back to the Scott Adams skill stack, that combination of two skills is [[unstoppable]].
