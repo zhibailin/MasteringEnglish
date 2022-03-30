@@ -60,3 +60,7 @@ but in a weird way, that combination, back to the Scott Adams skill stack, that 
 Long term, people who understand the underlying product and how to build it and can sell it, 
 these are [[catnip]] to investors, 
 these people can __break down walls__ if they have enough energy, and they can get almost anything done.
+
+Nivi: If you could only pick one to be good at, which one would you pick?
+
+Naval: When you’re trying to __[[stand out from]] the noise__, building is actually better because there’re so many [[hustlers]] and sales people who have nothing to __back them up__. 
