@@ -64,3 +64,4 @@ these people can __break down walls__ if they have enough energy, and they can g
 Nivi: If you could only pick one to be good at, which one would you pick?
 
 Naval: When you’re trying to __[[stand out from]] the noise__, building is actually better because there’re so many [[hustlers]] and sales people who have nothing to __back them up__. 
+When you’re [[starting out]], when you’re trying to be [[recognized]], building is better.
