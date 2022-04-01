@@ -67,3 +67,4 @@ Naval: When you’re trying to __[[stand out from]] the noise__, building is act
 When you’re [[starting out]], when you’re trying to be [[recognized]], building is better.
 
 But much [[later]] [[down-the-line]] building gets exhausting because it is a focus job and it’s hard to __stay [[current]]__ 
+because there’s always new people, new products coming up who have newer tools, and [[frankly]] more time because __it’s very [[intense]]__, it’s __a very focused task__.
