@@ -68,3 +68,6 @@ When you’re [[starting out]], when you’re trying to be [[recognized]], build
 
 But much [[later]] [[down-the-line]] building gets exhausting because it is a focus job and it’s hard to __stay [[current]]__ 
 because there’s always new people, new products coming up who have newer tools, and [[frankly]] more time because __it’s very [[intense]]__, it’s __a very focused task__.
+
+So, sales skills actually scale better over time. 
+Like for example, if you __have a reputation for__ building a great product, that’s good, but when you ship your new product, I’m going to validate it based on the product. But if you __have a reputation for__ being a good person to do business with and you’re [[persuasive]] and [[communicative]] then that reputation almost becomes [[self-fulfilling]].
