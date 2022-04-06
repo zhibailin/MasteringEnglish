@@ -71,3 +71,6 @@ because there’s always new people, new products coming up who have newer tools
 
 So, sales skills actually scale better over time. 
 Like for example, if you __have a reputation for__ building a great product, that’s good, but when you ship your new product, I’m going to validate it based on the product. But if you __have a reputation for__ being a good person to do business with and you’re [[persuasive]] and [[communicative]] then that reputation almost becomes [[self-fulfilling]].
+
+So, I think if you only had to pick up one, you can __start with building and then [[transition]] to selling__. 
+This is a [[cop-out]] answer, but I think that is actually the right answer.
