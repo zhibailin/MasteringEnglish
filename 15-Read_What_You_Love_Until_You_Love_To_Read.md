@@ -10,3 +10,4 @@ Naval: Yeah, the most important tweet on this, ~~I don’t even have in here unf
 
 And __the problem is__, what do I read? How do I read? 
 Because for most people __it’s a [[struggle]], it’s a [[chore]]__.
+So, the most important thing is just __to learn how to educate yourself and the way to educate yourself is to develop a love for reading__
