@@ -13,3 +13,6 @@ Because for most people __it’s a [[struggle]], it’s a [[chore]]__.
 So, the most important thing is just __to learn how to educate yourself and the way to educate yourself is to develop a love for reading__
 
 So, the tweet that [[is left out]], the one that I was [[hinting at]] is, “read what you love until you love to read.” It’s that simple.
+
+Everybody I know who reads a lot loves to read, and they love to read because they read books that they loved. 
+__It’s a little bit of a [[catch-22]]__, but you basically want to [[start off]] just reading wherever you are and then keep building up from there until reading becomes a habit. 
