@@ -17,3 +17,10 @@ So, the tweet that [[is left out]], the one that I was [[hinting at]] is, “rea
 Everybody I know who reads a lot loves to read, and they love to read because they read books that they loved. 
 __It’s a little bit of a [[catch-22]]__, but you basically want to [[start off]] just reading wherever you are and then keep building up from there until reading becomes a habit. 
 And then eventually, you will just __get bored of the simple stuff__.
+
+So you may start off reading fiction, 
+then you might [[graduate]] to science fiction, 
+then you may graduate to non-fiction, 
+then you may graduate to science, or philosophy, or mathematics or whatever it is, 
+but __[[take]] your natural path__ and just read the things that interest you until you kind of understand them. 
+And then you’ll naturally move to the next thing and the next thing and the next thing.
