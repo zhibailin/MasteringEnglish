@@ -28,3 +28,4 @@ And then you’ll naturally move to the next thing and the next thing and the ne
 > Read the original scientific books in a field
 
 Now, __there is an exception to this__, which is where I was hinting with what things you actually do want to learn, which is, at some point there’s too much out there to read. 
+Even reading is full of junk.
