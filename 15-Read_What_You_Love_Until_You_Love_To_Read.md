@@ -24,3 +24,7 @@ then you may graduate to non-fiction,
 then you may graduate to science, or philosophy, or mathematics or whatever it is, 
 but __[[take]] your natural path__ and just read the things that interest you until you kind of understand them. 
 And then you’ll naturally move to the next thing and the next thing and the next thing.
+
+> Read the original scientific books in a field
+
+Now, __there is an exception to this__, which is where I was hinting with what things you actually do want to learn, which is, at some point there’s too much out there to read. 
