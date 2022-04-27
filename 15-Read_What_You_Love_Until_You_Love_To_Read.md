@@ -29,3 +29,6 @@ And then you’ll naturally move to the next thing and the next thing and the ne
 
 Now, __there is an exception to this__, which is where I was hinting with what things you actually do want to learn, which is, at some point there’s too much out there to read. 
 Even reading is full of junk.
+
+There are actually things you can read, especially [[early on]], that will program your brain a certain way, 
+and then later things that you read, you will decide whether those things are true or false __based on the earlier things__.
