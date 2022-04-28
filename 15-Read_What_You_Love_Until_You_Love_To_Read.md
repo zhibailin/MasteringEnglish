@@ -32,3 +32,12 @@ Even reading is full of junk.
 
 There are actually things you can read, especially [[early on]], that will program your brain a certain way, 
 and then later things that you read, you will decide whether those things are true or false __based on the earlier things__.
+
+So, it is important that you read foundational things. 
+And foundational things, I would say, are the original books in a given field that are very scientific in their nature.
+
+For example, 
+__instead of__ reading a business book, __pick up__ Adam Smith’s The Wealth of Nations. 
+__Instead of__ reading a book on biology or evolution that’s written today, I __would pick up__ Darwin’s Origin of the Species. 
+__Instead of__ reading a book on [[biotech]] right now that may be very advanced, I __would just pick up__ The Eighth Day of Creation by Watson and Crick. 
+__Instead of__ reading advanced books on what [[cosmology]] and what Neil Degrasse Tyson and Stephen Hawking have been saying, you __can pick up__ Richard Feynman’s Six Easy Pieces and start with basic physics.
