@@ -41,3 +41,13 @@ __instead of__ reading a business book, __pick up__ Adam Smith’s The Wealth of
 __Instead of__ reading a book on biology or evolution that’s written today, I __would pick up__ Darwin’s Origin of the Species. 
 __Instead of__ reading a book on [[biotech]] right now that may be very advanced, I __would just pick up__ The Eighth Day of Creation by Watson and Crick. 
 __Instead of__ reading advanced books on what [[cosmology]] and what Neil Degrasse Tyson and Stephen Hawking have been saying, you __can pick up__ Richard Feynman’s Six Easy Pieces and start with basic physics.
+
+> Don’t fear any book
+
+If you understand the basics, especially in mathematics and physics and sciences, then you will not be afraid of any book. 
+All of us have that memory of when we were sitting in class and we’re learning mathematics, and it was all logical and all made sense until at one point the class moved too fast and we fell behind.
+Then after that we were left memorizing equations, memorizing concepts without being able to derive them from first principles. 
+And at that moment, we’re lost, because unless you’re a professional mathematician, you’re not going to remember those things. 
+All you’re going to remember are the techniques, the foundations.
+
+The ultimate is when you walk into a library and you look at it up and down and you don’t fear any book. You know that you can take any book off the shelf, you can read it, you can understand it, you can absorb what is true, you can reject what is false, and you have a basis for even working that out that is logical and scientific and not purely just based on opinions.
