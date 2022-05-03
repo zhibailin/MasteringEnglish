@@ -51,3 +51,7 @@ And at that moment, we’re lost, because unless you’re a professional mathema
 All you’re going to remember are the techniques, the foundations.
 
 The ultimate is when you walk into a library and you look at it up and down and you don’t fear any book. You know that you can take any book off the shelf, you can read it, you can understand it, you can absorb what is true, you can reject what is false, and you have a basis for even working that out that is logical and scientific and not purely just based on opinions.
+
+> The means of learning are abundant; the desire to learn is [[scarce]]
+
+The beauty of the internet is the entire library of Alexandria times 10 is at your fingertips at all times. It’s not the means of education or the means of learning are scarce, the means of learning are abundant. It’s the desire to learn that’s scarce. So, you really have to __[[cultivate]] the desire__.
