@@ -55,3 +55,9 @@ The ultimate is when you walk into a library and you look at it up and down and 
 > The means of learning are abundant; the desire to learn is [[scarce]]
 
 The beauty of the internet is the entire library of Alexandria times 10 is at your fingertips at all times. It’s not the means of education or the means of learning are scarce, the means of learning are abundant. It’s the desire to learn that’s scarce. So, you really have to __[[cultivate]] the desire__.
+And it’s not even cultivating you've to not lose it.
+Children have a natural curiosity. If you go to a young child who’s first learning language, they’re pretty much always asking: What’s this? What’s that? Why is this? Who’s that? They’re always asking questions.
+
+But one of the problems is that schools and our educational system, and even our way of __raising children replaces curiosity with [[compliance]]__. 
+And once you replace the curiosity with the compliance, you get an [[obedient]] factory worker, but you no longer get __a creative thinker__. 
+And you need creativity, you need the ability to feed your own brain to learn whatever you want.
