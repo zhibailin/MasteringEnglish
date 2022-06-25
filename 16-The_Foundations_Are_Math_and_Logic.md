@@ -9,3 +9,6 @@ a lot of [[macro bullshit]].
 As Nassim Taleb says, it is easier to macro bullshit than it is the micro bullshit. 
 Because macroeconomics is [[voodoo-complex-science]] meets politics. 
 You can’t find two macroeconomists to agree on anything these days, and __different macroeconomists get used by different politicians__ to [[peddle]] their different __pet theories__.
+
+There are even macroeconomists out there now peddling something called _Modern Monetary Theory_ which basically says, hey, except for this pesky thing called [[inflation]], we can just __print all the money__ that we want. 
+Yes, except for this pesky thing called inflation. __That’s like saying__, except for limited energy, we can fire rockets off into space [[all day long]].
